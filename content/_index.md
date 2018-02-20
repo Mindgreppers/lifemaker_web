@@ -82,6 +82,25 @@ To go deep within (with us), you can visit us in Dharamsala, H.P., India – our
 
 ## Donate
 
+## What's happening now?
+We are two main contributors and other volunteers in the role of 4 elders, 5 developers, couple of designers and around 70 seeders
+We are working on
+* Lifeline to help people figure out their selves, and lives, from across the world
+* New Website and blog
+* Design and development of the Lifemaker app
+* Assembling the app team
+* Improvement of the charter of living
+* Fund raising to build app
+* Looking for land to build an Ashram near Dharamsala, HP
+
+## How can you contribute?
+* Be a Lifemaker and help people through lifeline
+* Be of design or technical help for the app
+* Donate funds or help raise funds
+* Spread the word in your circles. 
+* Suggest lifeline to your friends in need
+
+
 ## Our past events
 
 ## What's coming next?
