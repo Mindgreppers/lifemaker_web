@@ -4,23 +4,19 @@ menu: main
 weight: -270
 ---
 
-### Lifemaker is the family of Universal love, Singular consciousness and Shared abundance. 
+## All is ONE
 
-A Lifemaker will agree that the real Self, which is to be found, in the Heart, is also to be found, equally, in every animate or inanimate object, in entire universe. The calling of a Lifemaker, is to realise *that* as its real Self and keep making Life (happier) all around. With a highly dense and intense awareness, unlimited compassion and sense of Oneness, a Lifemaker supports and empowers life, to heal and improve itself. Lifemaker is an inclusive being, who treats everyone with same attention, affection and humility, being attached to no one at all or to everyone and everything equally. 
+A Lifemaker's experiential reality (possibly starting as a belief) is that all Life and objects (body, mind, world etc) come from and go back to the same source. Hence a lifemaker says 
 
->> In a time where individualism trumps Oneness, we are here to spread Singular consciousness, Shared abundance and Undifferentiated love.
+> I am that (indivisible ONE). Any separation (between this body, world and Collective Consciousness or GOD) is an illusion. Hence I include everyone and everything that there is, in my sphere of benevolence.
 
-Our community has people with different skills and life experience, with a BIG heart. What is common between all of us is a deep understanding of "Who I am" and "How to live life best!". This understanding tells us that to make the most out of life, we must keep learning about our deepest nature, seek company of likeminded on same path, and serve the world with same or greater interest as one would have for one's ego-self. 
+Realising this, the Lifemaker keeps dropping any attachments or obsessions with the limited ego-self, and lives freely and fearlessly as the Supreme Self evermore, loving everything and everyone equally.
 
-*With this intention we are here to make make our lives better, together!*
+Lifemaker's intention is benefit of all Life.
 
-#### Why Lifemaker?
+#### Vision
 
-> We envision happiness, love and light for everyone!
-
-We envision, in next few years, a paradign shift in human consciousnessness where there is ultimate peace, happiness and abundance in our lives - both within and between each other. We envision a day where no one goes hungry because we have enough to share. We envision so much peace, understanding and shared abundance that there be no need for any war or border control.
-
-We envision significant chunk of, if not all, humanity to start following a [rightful and harmonious way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0), and being *Enlightened enough*, to be content, happy and peaceful within and without, no matter what situation surrounds them. Having no worries or fears about their present or future, we want every Lifemaker to be free, blissful and selflessly creative in the present.
+We envision, in next few years, a positive paradigm shift in human consciousnessness and state of individual and collective affairs. We will face tought times because of our ignorance, past actions or natural disasters, but with help of each other, we will do well overall. Average human will be happier, more loved and more resourceful than today. [Read more..](/vision)
 
 {{< youtube d_nsFjSuMUU >}}
 
@@ -35,6 +31,8 @@ Let us know how the interactions go. Give us your testimonials, and shall you fe
 #### Who we are
 
 > We are people from different walks in life, and different experience and abilities – here to help our human tribe make a leap in its consciousness and collective life. 
+
+Our community has people with different skills and life experience. What is common between all of us is a deep understanding of "Who I am" and "How to live life best!". This understanding tells us that to make the most out of life, we must keep learning about our deepest nature, seek company of likeminded on same path, and serve the world with same or greater interest as one would have for one's ego-self. 
 
 Our core base is in Dharamsala, Himachal Pradesh and rest of us are spread across the world. Between us we have expertise in plethora of areas, primarily including spirituality, philosophy, meditation, Yoga, healing and healthy living, self improvement, occult, life and career advice, primary education, skill based empowerment, social welfare, sustainability, permaculture, nature welfare, events, technology, international cooperation, human upliftment, disaster and calamity management.  
 Ayush and Federico are helping coordinate the moment. We are a growing community, including some elders or Wise ones, on the crew.
