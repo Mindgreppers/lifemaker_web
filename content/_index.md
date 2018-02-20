@@ -6,52 +6,26 @@ weight: -270
 
 ## All is ONE
 
-A Lifemaker's experiential reality (possibly starting as a belief) is that all Life and objects (body, mind, world etc) come from and go back to the same source. Hence a lifemaker says 
+A Lifemaker's experiential reality (possibly starting as a belief) is that all Life and objects (body, mind, world etc) come from and go back to the same source. In fact they are no different from the (infinite) Source, or the (real) Self. Hence a lifemaker says 
 
-> I am that (indivisible ONE). Any separation (between this body, world and Collective Consciousness or GOD) is an illusion. Hence I include everyone and everything that there is, in my sphere of benevolence.
+> I am that (indivisible ONE). Any separation (between this body, world and Collective Consciousness or GOD) is an illusion. Everyone and everything that there is, is just Me. I extend love to all Life, which is but my real Self.
 
-Realising this, the Lifemaker keeps dropping any attachments or obsessions with the limited ego-self, and lives freely and fearlessly as the Supreme Self evermore, loving everything and everyone equally.
+Realising this, the Lifemaker keeps dropping any attachments or obsessions with the limited ego-self, and lives freely and fearlessly as the Supreme Self evermore. It finds the source of eternal bliss, and from there and *as that*, it loves everything and everyone infinitely and unconditionally. A Lifemaker is a true source of bliss.
 
-Lifemaker's intention is benefit of all Life.
+## Grow and be happier with Lifemaker's Lifeline initiative 
+*Facing some challenge or question in life? Feel things need to improve? Looking to expand your horizons and learn something new and meaningful?*
+
+We are here as your family of support, advice and abundance. You can contact us remotely or visit us 
+
+> Reaching out to us may change your life for good
+
+Our community of experts is here to help you in helping yourself. Read more about the Lifeline [here](/lifeline)
 
 #### Vision
 
 We envision, in next few years, a positive paradigm shift in human consciousnessness and state of individual and collective affairs. We will face tought times because of our ignorance, past actions or natural disasters, but with help of each other, we will do well overall. Average human will be happier, more loved and more resourceful than today. [Read more..](/vision)
 
 {{< youtube d_nsFjSuMUU >}}
-
-## Lifeline
-
-> We offer life advice and support, unconditionally, and for free, to anyone from across the world. Reach out to us at 9882883272 on Watsapp, or hello@lifemaker.us on email. We support Hindi, English, Italian, Punjabi, Gaddi languages as of now.
-
-After an intitial conversation and understanding with you, once we have understood what you need, you will be put in touch with the relevant Lifemakers (life coaches, benefactors or guides) who will do their *selfless best* to help you with your particular query.  
-
-Let us know how the interactions go. Give us your testimonials, and shall you feel benefitted, we encourage you to give us some donation or contribution (of any kind) to sustain the Lifemaker family and your advisors. Abundance increases when shared.
-
-#### Who we are
-
-> We are people from different walks in life, and different experience and abilities – here to help our human tribe make a leap in its consciousness and collective life. 
-
-Our community has people with different skills and life experience. What is common between all of us is a deep understanding of "Who I am" and "How to live life best!". This understanding tells us that to make the most out of life, we must keep learning about our deepest nature, seek company of likeminded on same path, and serve the world with same or greater interest as one would have for one's ego-self. 
-
-Our core base is in Dharamsala, Himachal Pradesh and rest of us are spread across the world. Between us we have expertise in plethora of areas, primarily including spirituality, philosophy, meditation, Yoga, healing and healthy living, self improvement, occult, life and career advice, primary education, skill based empowerment, social welfare, sustainability, permaculture, nature welfare, events, technology, international cooperation, human upliftment, disaster and calamity management.  
-Ayush and Federico are helping coordinate the moment. We are a growing community, including some elders or Wise ones, on the crew.
-
-
-#### Ask us anything
-
-> You can ask us any question you face. For example.
-
-How can I be at true peace and bliss within? How can I be free from confusion, negative thoughts and emotions? How can my relationships be improved?  How can I be healthy - in body, mind and spirit? How can I improve myself? How can I be unconditionally happy? How can I find love? How can I better achieve my goals or fulfill my duties? Which profession should I choose? How can I be a good leader? What can I learn from my or our mistakes? Who am I? How can I serve better? Can someone help me?
-
-
-## We are good at (not limited to, but including) 
-
-> Self transformation and improvement. Higher consciousness. Clarity. Harmony. LOVE.
-
-Attitude of living (for an abundant and happy life), evaluation of self and life, discovery of Self, philosophy of life, evaluation and fulfillment of desires, answers to life’s existential questions, better decision making, peace and clarity of mind, opening the mind, being happy and at ease, being fearless and empowered, better relationships, health of body, energy and mind, mastery over mind (thoughts and emotions), inner satisfaction, fulfilment, liberation from ignorance, desires and suffering, career advice, relationship advice, finding the heart (yourself), fulfilment of heartfelt duties and desires. 
-
-*We are happy to be useful in any way, not just limited to the areas mentioned above. Our community has diverse technical, creative, material and abstract skills. So ask us anything!*
 
 ## We believe that
 
@@ -67,32 +41,25 @@ It is a shared aspiration of an attitude deemed fit for living a fulfilled and h
 
 Elders carry wisdom from their experience and life insights. Lifemaker has the blessing to have some truly Wise – Realised and Selfless souls, with loads of experience and enlightenment to share, and to guide and advice us as senior family members. Some of our current elders are – Ranganathan Chari from Kodaikanal, Anish Joel from Dharamsala, Pran Krsna Baba, Nimay Baba and others from Radhakund and Vrindavana, Swamiji Harish Karun from Tang, Dharamsala etc. More are on the way.
 
-## Live with us
-
-To go deep within (with us), you can visit us in Dharamsala, H.P., India – our heardquarter. We have a beautiful ashram with couple of rooms, a kitchen and the blissful and enlightening company of Swamiji Harish Karun.
-
 ## Donate
 
 ## What's happening now?
-We are two main contributors and other volunteers in the role of 4 elders, 5 developers, couple of designers and around 70 seeders
 We are working on
 * Lifeline to help people figure out their selves, and lives, from across the world
 * New Website and blog
 * Design and development of the Lifemaker app
 * Assembling the app team
 * Improvement of the charter of living
-* Fund raising to build app
+* Fund raising to build app and fund community activities
 * Looking for land to build an Ashram near Dharamsala, HP
 
-## How can you contribute?
-* Be a Lifemaker and help people through lifeline
+## Contribute
+* Join our database of experts to advice and support seekers in different ways
+* Suggest lifeline to your friends in need
 * Be of design or technical help for the app
 * Donate funds or help raise funds
 * Spread the word in your circles. 
-* Suggest lifeline to your friends in need
 
-## Join us
-Interested in being a Lifemaker? We are very happy to know that. Please contact us through this form, and we shall schedule a call or meeting to take our relationship forward.
+## Be a Lifemaker (advisor/coach/guide/mentor/benefactor)
+Interested in helping others make their lives? We are very happy to know that. Please contact us through one of our channels, and we shall schedule a call or meeting to take our relationship forward. Make sure you have read the [Way of Life charter](https://docs.google.com/document/d/1c3aAmHibXATFHTdiPUtU5l72mDubB-R3TiBNY0G7G-g/edit?ts=5a3edc29) before applying!
 
-## Contact us
-## Budget and sustainability
