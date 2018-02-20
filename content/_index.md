@@ -4,7 +4,7 @@ menu: main
 weight: -270
 ---
 
-## Lifemaker is the family of Universal love, Singular consciousness and Shared abundance. 
+### Lifemaker is the family of Universal love, Singular consciousness and Shared abundance. 
 
 A Lifemaker will agree that the real Self, which is to be found, in the Heart, is also to be found, equally, in every animate or inanimate object, in entire universe. The calling of a Lifemaker, is to realise *that* as its real Self and keep making Life (happier) all around. With a highly dense and intense awareness, unlimited compassion and sense of Oneness, a Lifemaker supports and empowers life, to heal and improve itself. Lifemaker is an inclusive being, who treats everyone with same attention, affection and humility, being attached to no one at all or to everyone and everything equally. 
 
@@ -32,12 +32,6 @@ After an intitial conversation and understanding with you, once we have understo
 
 Let us know how the interactions go. Give us your testimonials, and shall you feel benefitted, we encourage you to give us some donation or contribution (of any kind) to sustain the Lifemaker family and your advisors. Abundance increases when shared.
 
-#### How do we gain members? 
-
-All of our members are personally known and vetted before being included as expert Lifemakers. We ensure so that you get connected with a right fit for your need and who will sincerely give you the advice he knows to work from his experience and knowledge. If needed to connect you to someone else, he or she will happily do that too! Our only motive is to see you grow as a soul and act with greater clarity, peace and resolve.
-
-Since this is a community based initiative, and still in growing stage, allow us up to 24 hours to respond. You will surely hear from us.
-
 #### Who we are
 
 > We are people from different walks in life, and different experience and abilities – here to help our human tribe make a leap in its consciousness and collective life. 
@@ -64,7 +58,6 @@ Attitude of living (for an abundant and happy life), evaluation of self and life
 ## We believe that
 
 There is an infinite source of happiness and abundance in our Heart. It is omnipresent and unchanging. It is One, manifesting as many, each playing a unique role in the World created by the same One. We may have forgotten our true nature but deep down we all seek the same. Love, Happiness, Oneness, Truth, Knowledge, Abundance, Contentment, Nature, Singularity, Supreme Self – all are different names or faces of the same.
-We also believe, that selfless living and sharing, without any attachment to the fruits of action, and without sense of doership, is the only way to create abundance. Infact, sharing is one of the aspirations of the way of Lifemaker.
 
 ## We aspire to live in a certain way
 
@@ -99,11 +92,6 @@ We are working on
 * Donate funds or help raise funds
 * Spread the word in your circles. 
 * Suggest lifeline to your friends in need
-
-
-## Our past events
-
-## What's coming next?
 
 ## Join us
 Interested in being a Lifemaker? We are very happy to know that. Please contact us through this form, and we shall schedule a call or meeting to take our relationship forward.
