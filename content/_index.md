@@ -12,14 +12,14 @@ A Lifemaker's experiential reality (possibly starting as a belief) is that all L
 
 Realising this, the Lifemaker keeps dropping any attachments or obsessions with the limited ego-self, and lives freely and fearlessly as the Supreme Self evermore. It finds the source of eternal bliss, and from there and *as that*, it loves everything and everyone infinitely and unconditionally. A Lifemaker is a true source of bliss.
 
-## Grow and be happier with Lifemaker's Lifeline initiative 
-*Facing some challenge or question in life? Feel things need to improve? Looking to expand your horizons and learn something new and meaningful?*
+## Want to be happier and better?
 
-We are here as your family of support, advice and abundance. You can contact us remotely or visit us 
+*Facing some challenge or question in life? Feel things need to improve? Looking to expand your horizons and learn something new and meaningful?* 
 
 > Reaching out to us may change your life for good
 
-Our community of experts is here to help you in helping yourself. Read more about the Lifeline [here](/lifeline)
+Our community of experts is here to help you in helping yourself. All it takes to get started is a message from you. Read more about the Lifeline feature [here](/lifeline)
+
 
 #### Vision
 
@@ -44,8 +44,8 @@ Elders carry wisdom from their experience and life insights. Lifemaker has the b
 ## Donate
 
 ## What's happening now?
-We are working on
-* Lifeline to help people figure out their selves, and lives, from across the world
+
+* We have started the Lifeline feature to help people grow and be happy and enlightened. 
 * New Website and blog
 * Design and development of the Lifemaker app
 * Assembling the app team
