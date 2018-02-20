@@ -1,4 +1,6 @@
 baseURL = "http://www.lifemaker.us"
+relativeURLs = true
+
 title = "Lifemaker"
 # for smart copyright line, leave this blank and check [params.copyright]
 copyright = ""
@@ -51,7 +53,7 @@ sticky = true
 
 [params.widgets]
 homepage = ["recent_posts"]
-sidebar = ["about","taxonomy_cloud"]
+sidebar = ["about", "menu"] # ,"taxonomy_cloud", "hello"]
 
 [params.opengraph.facebook]
 admins = [] # array of Facebook IDs
