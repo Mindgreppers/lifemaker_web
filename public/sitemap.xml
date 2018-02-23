@@ -1,0 +1,85 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
+  xmlns:xhtml="http://www.w3.org/1999/xhtml">
+  
+  <url>
+    <loc>http://www.lifemaker.us/hubs/</loc>
+    <lastmod>2018-02-20T12:38:03+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/</loc>
+    <lastmod>2018-02-20T12:38:03+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/lifeline/</loc>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/events/</loc>
+    <lastmod>2018-02-23T13:51:05+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/about/</loc>
+    <lastmod>2018-02-23T12:36:37+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/teachings/</loc>
+    <lastmod>2018-02-23T12:33:57+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/music/</loc>
+    <lastmod>2018-02-23T12:33:29+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/philosophy/</loc>
+    <lastmod>2018-02-23T12:29:04+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/post/humanity/</loc>
+    <lastmod>2018-02-23T10:40:11+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/faq/</loc>
+    <lastmod>2018-02-20T12:38:03+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/authors/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/categories/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/page/</loc>
+    <lastmod>2018-02-20T12:38:03+05:30</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/post/</loc>
+    <lastmod>2018-02-23T10:40:11+05:30</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/tags/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/reading/</loc>
+  </url>
+  
+</urlset>
