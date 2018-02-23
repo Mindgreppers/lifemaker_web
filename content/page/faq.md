@@ -10,11 +10,16 @@ draft: false
 #### What is LifeMaker?
 LifeMaker is a movement of people who want to bring meaning and happiness in their lives and all across the world by mutual support, understanding and sharing of abundance.
 
+# Is Lifemaker community's philosophy of Oneness a new revelation?
+
+Not at all. It is backed by direct experience of not just Lifemaker members, but also innumerable human ancestors from all across the world, since thousands of years, even before relegions came into being. The same knowledge has been put in different words or symbols by all messengers, shamans, Sages or relegions. Lifemaker represents the same  knowledge, presented in a way modern humanity can rationally and in feeling, related to.
+
 #### What is the aim of LifeMaker?
 The aim of LifeMaker is to foster self-growth, love and happiness in everyone’s life. By connecting the global tribe of truth seekers and change makers, we aim to create the conditions for a new planetary culture of peace, Singular consciousness and abundance.
 
 #### Who are the people involved in this project?
 There are many people who’ve helped/inspired the LifeMaker project and have given an invaluable contribution to its inception. Currently we are two main contributors, joined by many volunteers and supporters in the role of 4 elders or Wise ones, 5 developers, couple of designers and around 150 seeders. Our base countries are India and Italy. You can see full list of team [here](/team)
+
 
 #### Can I join?
 Everyone is welcome to join. Our tribe welcomes people from any walk of life. 

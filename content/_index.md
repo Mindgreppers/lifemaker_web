@@ -3,33 +3,27 @@ title: Home
 menu: main
 weight: -270
 ---
+## Are you truly happy and fulfilled?
 
-## All is ONE
+*Are you feeling that life (or something to do with you) is not perfect? Are you facing some challenge or question that seem to puzzle you? Do you find yourself wishing for peace of Mind at times? Do you feel separate(or anguished) from the World? Do you feel you (or your life, World) need to improve? Are there any goals (or desires) you wish to realise? Do you derive joy in serving others, and wonder how you can serve better? Are you looking to expand your perspective and grow? Do you need help of any kind?* 
 
-A Lifemaker's experiential reality (possibly starting as a belief) is that all Life and objects (body, mind, world etc) come from and go back to the same source. In fact they are no different from the (infinite) Source, or the (real) Self. Hence a lifemaker says 
+> Reaching out to us may be the best thing you do
 
-> I am that (indivisible ONE). Any separation (between this body, world and Collective Consciousness or GOD) is an illusion. Everyone and everything that there is, is just Me. I extend love to all Life, which is but my real Self.
+No matter what is your area of concern, we may be able to channelise help for you. All it takes to get started is a message from you. Read more about the Lifeline feature [here](/lifeline)
 
-Realising this, the Lifemaker keeps dropping any attachments or obsessions with the limited ego-self, and lives freely and fearlessly as the Supreme Self evermore. It finds the source of eternal bliss, and from there and *as that*, it loves everything and everyone infinitely and unconditionally. A Lifemaker is a true source of bliss.
+*Just like an empty pot can not fill another cup, in order to truly make anyone happy and benefitted, you need to be happy and fulfilled yourself.*
 
-## Want to be happier and better?
+## All is ONE. ONE is All.
+> I am that (indivisible, unborn, undying, formless, eternal Self). 
 
-*Facing some challenge or question in life? Feel things need to improve? Looking to expand your horizons and learn something new and meaningful?* 
+I am the dot which is the center and the source of the circle on which exist objects like mind, ego-self, body and World. They are same as Me, the Self. Yet, the Self is different from them in the way that it can exist without them, but they can not exist without the Self. Just like gold (the formless) exists without the jewels (forms) made out of it; I exist, without this body, mind and world, which are just like jewels made out of gold, which is the real Me. Read more about our philosophy [here](/philosophy)
 
-> Reaching out to us may change your life for good
+## Call to the tribe
 
-Our community of experts is here to help you in helping yourself. All it takes to get started is a message from you. Read more about the Lifeline feature [here](/lifeline)
-
-
-#### Vision
-
-We envision, in next few years, a positive paradigm shift in human consciousnessness and state of individual and collective affairs. We will face tought times because of our ignorance, past actions or natural disasters, but with help of each other, we will do well overall. Average human will be happier, more loved and more resourceful than today. [Read more..](/vision)
+> The humanly crisis, and the solution
 
 {{< youtube d_nsFjSuMUU >}}
 
-## We believe that
-
-There is an infinite source of happiness and abundance in our Heart. It is omnipresent and unchanging. It is One, manifesting as many, each playing a unique role in the World created by the same One. We may have forgotten our true nature but deep down we all seek the same. Love, Happiness, Oneness, Truth, Knowledge, Abundance, Contentment, Nature, Singularity, Supreme Self – all are different names or faces of the same.
 
 ## We aspire to live in a certain way
 
