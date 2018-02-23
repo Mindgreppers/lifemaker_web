@@ -37,7 +37,7 @@ We are here to empower those who wish to bring meaning, happiness and growth in 
 
 > I am that (indivisible, unborn, undying, formless, eternal Self). 
 
-I am the center of the circle on which exist objects like mind, body and World. Like gold exists without its jewels (forms), but the jewels can not exist without the Gold, I exist even when there is no thought, body or world but they can not exist without me. I am them. But they are not me. Because I am eternal and unchanging, the source of everything, which exists also in deep sleep as well in dreams - only I am real. The mind, body and World have a lifespan, and are forever changing. Hence how can they be called real? *Read more about our philosophy [here](/philosophy)*
+I am the center of the circle on whose circumference exist objects like mind, body and World. Like gold exists without its jewels (forms), but the jewels can not exist without the Gold, I exist even when there is no thought, body or world but they can not exist without me. I am them. But they are not me. Because I am eternal and unchanging, the source of everything, which exists also in deep sleep as well in dreams - only I am real. The mind, ego, body and World have a lifespan, and are forever changing. Hence how can they be called real? *Read more about our philosophy [here](/philosophy)*
 
 *If we truly realised this One Absolute Truth (the center point) passed by the teachings of all relegions, sages and prophets in different ways, suited for their times and places, we would not be fighting over issues at the circle, because we will all be aligned at the source, the center, the dot. There will be peace, prosperity and happiness for humanity.*
 
@@ -65,7 +65,6 @@ As Lifemakers, we wish to be available to humanity to help them do well in any a
 ## Be a Lifemaker (As an elder, expert or seeker)
 *We are your tribe, on a collective journey from separation to union, darkness to light, scarcity to abundance and misery to bliss.* 
 Shall you feel even the slightest resonance with the concept of Lifemaker, please contact us through one of our channels, and we shall schedule a call or meeting to take our relationship forward. Make sure you have read the [Way of Life charter](https://docs.google.com/document/d/1c3aAmHibXATFHTdiPUtU5l72mDubB-R3TiBNY0G7G-g/edit?ts=5a3edc29)!
-
 
 ## What's happening now?
 
