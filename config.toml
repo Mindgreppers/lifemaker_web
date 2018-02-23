@@ -22,7 +22,8 @@ pygmentsCodefences = true
 defaultContentLanguage = "en"
 
 [params.info]
-description = "Letting your real Self shine"
+#description = "Letting your real Self shine"
+description = "When You shine, the World shines"
 title404 = "Nothing's here!"
 
 [params.assets]

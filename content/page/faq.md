@@ -8,7 +8,14 @@ draft: false
 ## About
 
 #### What is LifeMaker?
-LifeMaker is a movement of people who want to bring meaning and happiness in their lives and all across the world by mutual support, understanding and sharing of abundance.
+LifeMaker is a movement or family or community, of people, by people and for people, 
+
+- to be fulfilled, happy and growing, on a moment to moment basis. 
+- to discover the non-dual nature of Self and start abiding therein
+- to co-create a new world of peace, love, unity and abundance.
+- to simplify the puzzle called life into a spontaneous expression of the Self
+
+We are here to empower those who wish to bring meaning and happiness in their lives or in lives of others. Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together, and well organised, as a global family of Love and Light, we are infinitely powerful and efficient. Only our sense of separation from the Existence makes us feel lonely and negative. Heaven is right here on Earth. Let us do the unvieling.
 
 # Is Lifemaker community's philosophy of Oneness a new revelation?
 
