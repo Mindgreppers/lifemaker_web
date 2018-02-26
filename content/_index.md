@@ -5,41 +5,59 @@ weight: -270
 ---
 ## Are you truly happy and fulfilled?
 
-*Are you feeling that life (or something to do with you) is not perfect? Are you facing some challenge or question that seem to puzzle you? Do you find yourself wishing for peace of Mind at times? Do you wish for love? Do you feel separate(or anguished) from the World? Do you feel you, your life or the World need to get better in any way? Are there any goals (or desires) you wish to realise? Do you derive joy in serving others, and wonder how you can serve better?* 
+##### Do you feel separate and lonely, having to fend for yourself alone? Do you wish for love and loving company?
+##### Do you suffer? Do you feel that the World has harmed you in any way? Do you lose your calm?
 
-> Reaching out to us may be the best thing you do
+*Do you feel you, your life, relationships or the World can get better in any way? Do you wish to learn or understand something new? Do you have any dream to fulfill? Are you facing some challenge or question that seem to puzzle you? Do you find yourself wishing for peace of Mind at times? Are there any duties or desires that you wish to fulfill? Do you derive joy in serving others, and wonder how you can serve better?* 
 
-No matter what is your area of concern, we may be able to channelise help for you. All it takes is a message from you. Read more about the Lifeline service [here](/lifeline)
+> **Reaching out to us for clarity, healing and empowerment may be the best thing you do**
 
-*Just like an empty pot can not fill another cup, in order to truly make anyone happy and benefitted, you need to be happy and fulfilled yourself. We are here as your benefactors for the same.*
+No matter what is your area of concern, we may be able to channelise help for you. Read more about the Lifeline service [here](/lifeline)
 
 ## What is LifeMaker?
 
-LifeMaker can be called a movement, family or community, of people, by people and for people, from across the World, to empower each other 
+> A global family of mutual empowerment, glued by the spirit of Oneness - **All is One. One is All.**
 
-- to conquer the Mind and its negative tendencies, and simplify the puzzle called life into a spontaneous expression of the (real) Self
-- to be happy, healthy and completely fulfilled
-- to pursue own creativity and expression for the benefit of the personal self or the world, in a fully supportive environment
-- to realise absolute freedom and live in the present, free from attachments to past, imaginations of future or expectations from the world
-- to inspire friends, colleages and family as an example of positive virtues like blissful consciousness, peace, love, unity, happiness, equanimity, cooperation and abundance.
-- to establish a just, harmonious, decentralised, efficient, progressive, inclusive and abundant social and economic order as ONE global village
-- to keep the (abstract and physical) environment clean, healthy and sustenable for everyone
-- to discover, create and share abundance with each other
-- to maintain a fertile environment in the present, and plant healthy seeds for the future.
+Lifemaker is a network of supreme knowledge and selfless action. We live in love, peace, open mindedness, acceptance and mutual support. We share and a [common aspiration of the way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, by people and for people movement, *without any hidden agenda, desire to control or greed*, to empower each other (in all ways possible), in order to
 
-> Please take time to review our [charter of the Way of Life](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0).
+- allow your [True Nature](/whoami) to take over the ignorant, limited and suffering ego-sense 
+- dissolve the (illusive) borders that make one feel separate from the other
+- be established in (Real and Eternal) bliss, spontaneity and peace *within*
+- fulfill the Heart's calling (or inner voice) in all aspects of life
+- live compassionately, responsibly and justfully *with each other and all Life*
+- co-create and share abundance with all Life
 
-It is a shared aspiration of an attitude deemed fit for living a fulfilled and harmonious life – individually and socially. The charter is maintained by the Lifemaker community. It will forever be evolving and improving, in an open manner. If you are considering joining us, please make an effort to review the charter. Let us know how it resonates with you, how can it be improved etc.
+We are here to empower those who wish to bring meaning, happiness and growth in their lives or in lives of others. Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together as ONE, as a global family of Love and Light, well connected and organised, we can create a shared ecosystem and energy field, which will help each one of us tap into our infinite potential and bliss, with much greater ease. Only our sense of separation from the Existence makes us feel limited, lonely and negative. Bliss, spontaneity and love is our true nature, only shrouded by our viel of ignorance. Heaven is within us. Let us do the unvieling together!
 
-We are here to empower those who wish to bring meaning, happiness and growth in their lives or in lives of others. Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together, and well organised as a global family of Love and Light, we are infinitely powerful, and can grow much faster. Only our sense of separation from the Existence makes us feel lonely and negative. Heaven is right here on Earth. Let us do the unvieling.
+## Way of Life
 
-## All is ONE. ONE is All.
+> The community of Lifemaker shares a common [charter of the Way of Life](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0).
 
-> I am that (indivisible, unborn, undying, formless, eternal Self). 
+It is a shared aspiration of an attitude deemed fit for living a fulfilled and harmonious life – individually and socially. The charter is maintained by the Lifemaker community. It will forever be evolving and improving, in an open manner, so that the way of life transends time, space and culture. If you are considering joining us, please make an effort to review the charter. Let us know how it resonates with you, how can it be improved etc.
 
-I am the center of the circle on whose circumference exist objects like mind, body and World. Like gold exists without its jewels (forms), but the jewels can not exist without the Gold, I exist even when there is no thought, body or world but they can not exist without me. I am them. But they are not me. Because I am eternal and unchanging, the source of everything, which exists also in deep sleep as well in dreams - only I am real. The mind, ego, body and World have a lifespan, and are forever changing. Hence how can they be called real? *Read more about our philosophy [here](/philosophy)*
+## Who am I?
 
-*If we truly realised this One Absolute Truth (the center point) passed by the teachings of all relegions, sages and prophets in different ways, suited for their times and places, we would not be fighting over issues at the circle, because we will all be aligned at the source, the center, the dot. There will be peace, prosperity and happiness for humanity.*
+> I am that (indivisible, unborn, undying, formless, limitless, eternal Self, present equally, everywhere) 
+
+The ego-sense which feels a separate I from rest of the Existence, is an illusion. The real, spontaneous Self is without the other, or separation.
+
+#### All is ONE. ONE is All.
+
+Like gold exists as the self same in all jewels (forms), but the jewels have no existence without the Gold, I exist as the unchanging same in *all that is*, but all that is can not exist without Me. Because I am eternal and unchanging, the source of everything, which exists also in deep sleep as well in dreams - only I am real. The mind, ego, body and World have a lifespan, and are forever changing. They come from Me and go back into Me. Hence how can they be called real?
+
+The same teaching is passed by all relegions, sages and prophets in different words suited for their times.
+
+- [La ilaha illa-Allah](http://www.techofheart.co/2007/05/la-ilaha-illa-allah-and-advaita-supreme.html) (Quran, Prophet - "the formula that outweights all the existence and formulas combined") 
+- [’Ehyeh ’ăšer ’ehyeh](https://en.wikipedia.org/wiki/I_Am_that_I_Am) (Hebrew Bible, Exodus 3:14, God to Moses)
+- [I AM THAT I AM](https://www.biblegateway.com/passage/?search=Exodus+3%3A14&version=KJV) (Bible) 
+- [Aham Brahmasmi](https://en.wikipedia.org/wiki/Aham_Brahmasmi) (Advaita Vedanta, the foundation of Hinduism)
+- [The principle that is the source, pattern and substance of everything that exists](/https://en.wikipedia.org/wiki/Taoism) (Taosim)
+- [Advaya](https://en.wikipedia.org/wiki/Nondualism#Buddhism) (Buddhism)
+- [Non-dualism across all historical relegions and spiritual movements](https://en.wikipedia.org/wiki/Nondualism)
+
+Read more about the philosophy of non-duality [here](/philosophy), or just search on internet yourself to see how every relegion and prohet spoke the same in different words.*
+
+*If we truly realised this One Absolute Truth as an experiential reality, we would not be fighting, because we will all be aligned at the source, the center, the dot. There will be peace, prosperity and happiness for humanity. Every Sage, Saint or Prophet lovingly wished to unify humanity on the same principal.*
 
 ## Call to the tribe
 
@@ -83,9 +101,11 @@ Shall you feel even the slightest resonance with the concept of Lifemaker, pleas
 
 # Donate
 
+Since we are a for people and by people initiative, we thrive via mutual contribution and monetary donations.
 Shall you donate, it will help us 
 
 - build our technology and apps
 - maintain and promote the web presence
-- do travel and events
+- do travel, workshops and events
 - sustain the operations in general
+- sustain some of our full time volunteers
