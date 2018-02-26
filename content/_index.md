@@ -5,10 +5,9 @@ weight: -270
 ---
 ## Are you truly happy and fulfilled?
 
-##### Do you feel separate and lonely, having to fend for yourself alone? Do you wish for love and loving company?
-##### Do you suffer? Do you feel that the World has harmed you in any way? Do you lose your calm?
-
-*Do you feel you, your life, relationships or the World can get better in any way? Do you wish to learn or understand something new? Do you have any dream to fulfill? Are you facing some challenge or question that seem to puzzle you? Do you find yourself wishing for peace of Mind at times? Are there any duties or desires that you wish to fulfill? Do you derive joy in serving others, and wonder how you can serve better?* 
+Do you feel lonely or not at peace? Do you wonder who you truly are? Do you wish to feel and live better? Do you wish the World could be a better place?
+Do you suffer? Do you feel that the World has harmed you in any way? Are you at peace?
+Is there any area of life in which you need help?
 
 > **Reaching out to us for clarity, healing and empowerment may be the best thing you do**
 
@@ -18,12 +17,11 @@ No matter what is your area of concern, we may be able to channelise help for yo
 
 > A global family of mutual empowerment, glued by the spirit of Oneness - **All is One. One is All.**
 
-Lifemaker is a network of supreme knowledge and selfless action. We live in love, peace, open mindedness, acceptance and mutual support. We share and a [common aspiration of the way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, by people and for people movement, *without any hidden agenda, desire to control or greed*, to empower each other (in all ways possible), in order to
+Lifemaker is a network of supreme knowledge and selfless action. We live in love, peace, open mindedness, acceptance and mutual support. We share and a [common aspiration of the way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, by people and for people movement, *without any hidden agenda, desire to control or greed*. We are here to tenderly empower each other, in order to
 
 - allow your [True Nature](/whoami) to take over the ignorant, limited and suffering ego-sense 
-- dissolve the (illusive) borders that make one feel separate from the other
 - be established in (Real and Eternal) bliss, spontaneity and peace *within*
-- fulfill the Heart's calling (or inner voice) in all aspects of life
+- be able to fulfill the Heart's calling (or inner voice) in all aspects of life
 - live compassionately, responsibly and justfully *with each other and all Life*
 - co-create and share abundance with all Life
 
