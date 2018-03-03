@@ -1,7 +1,6 @@
 ---
 title: "Philosophy"
 date: 2018-02-23T12:29:04+05:30
-menu: main
 draft: false 
 ---
 

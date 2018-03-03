@@ -2,7 +2,6 @@
 title: "Economics"
 date: 2018-02-23T21:02:43+05:30
 draft: false 
-menu: main
 ---
 
 Lifemaker is a by people and for people project. Hence the ideas, funds, infrastructure and every resource is to be pooled by the members only. 
