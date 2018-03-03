@@ -5,27 +5,51 @@ weight: -270
 ---
 ## Are you truly happy and fulfilled?
 
-Do you feel lonely or not at peace? Do you wonder who you truly are? Do you wish to feel and live better? Do you wish the World could be a better place?
-Do you suffer? Do you feel that the World has harmed you in any way? Are you at peace?
-Is there any area of life in which you need help?
+Do you wonder who you truly are? Do you know what you really, really want? Do you suffer for any reason? Do you wish your family and relationships to do well? What is your purpose and passion? Do you wish the World to be a happier place and all life to flourish? 
+Do you need any kind of help or insight?
 
-> **Reaching out to us for clarity, healing and empowerment may be the best thing you do**
+> **We are your human family for clarity, healing and empowerment, to help you realise the essence of life and manifest what you (and all of humanity) need**
 
 No matter what is your area of concern, we may be able to channelise help for you. Read more about the Lifeline service [here](/lifeline)
 
 ## What is LifeMaker?
 
-> A global family of mutual empowerment, glued by the spirit of Oneness - **All is One. One is All.**
+> A global family of consciousness and mutual fulfillment, glued by the spirit of Oneness - **All is One. One is All.**
 
-Lifemaker is a network of supreme knowledge and selfless action. We live in love, peace, open mindedness, acceptance and mutual support. We share and a [common aspiration of the way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, by people and for people movement, *without any hidden agenda, desire to control or greed*. We are here to tenderly empower each other, in order to
+Lifemaker is a network of existential knowledge, mutual fulfillment and all round happiness. We live in love, peace, open mindedness, acceptance and mutual support. We share and a [common aspiration of the way of living](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, by people and for people movement, *without any hidden agenda, desire to control or greed*. We make you and you make us. We are here to tenderly empower every one to
 
-- allow your [True Nature](/whoami) to take over the ignorant, limited and suffering ego-sense 
-- be established in (Real and Eternal) bliss, spontaneity and peace *within*
-- be able to fulfill the Heart's calling (or inner voice) in all aspects of life
-- live compassionately, responsibly and justfully *with each other and all Life*
-- co-create and share abundance with all Life
+- realise the True Self whose nature is continuous and eternal happiness, peace and love
+- live a meaningful, mutually fulfilled and *truly* value added life, driven by our inner calling and purpose
+- find justful and complete solutions to personal, family, human or environmental needs
+  - Health, food and energy for everyone
+  - citizenship of Earth and co-ownership of resources with all Nature
+  - conervation and right utilisation of resources
 
-We are here to empower those who wish to bring meaning, happiness and growth in their lives or in lives of others. Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together as ONE, as a global family of Love and Light, well connected and organised, we can create a shared ecosystem and energy field, which will help each one of us tap into our infinite potential and bliss, with much greater ease. Only our sense of separation from the Existence makes us feel limited, lonely and negative. Bliss, spontaneity and love is our true nature, only shrouded by our viel of ignorance. Heaven is within us. Let us do the unvieling together!
+## Our approach
+
+- Join hearts, hands and minds to create a new social order which is continuously happy and justful
+- Working towards Self realisation in a systematic way, because realised and happy Self is realised and happy family, and realised and happy families is realised and happy world. 
+  - Adopt a family or group based approach for exitential and co-existential education (based on enlightenment and value system) 
+    - satsang nutrition and safety is cared for not worry, justful nutrition and safety education, where there is trust and emotional wellbeing, manoswasthta ubhay tripti
+
+    - discussion - how can it wellbeing and safety be achieved in a jutsful way
+	- study - how to work with happiness repeatitevly and ultimately, continously 
+	- contemplation - understanding of entire existence with all its objects including nature of individual self (in thoughts)
+	- meditation - understanding of entire existence with all its objects (in void which is omnipresent, transcendental and transparent)
+- Be the change we want to see. 
+  - Not to wait for external agents like Governments to come to our rescue. Act ourselves with wisdom, confidence and mutual support
+- Live by shared guidelines (or value system) for harmonious, enlightening and abundant life
+  - Spiritual - Happiness, peace, satisfaction and bliss
+  - Social - Trust, respect, affection and motherliness
+  - Human - Patience, courage, generosity, kindness, compassion  
+  - Material - Usefulness, cleanliness and beauty
+- Help each other compassionately and wisely
+- Co-ownership, conservation and right utilisation of resources
+- An alternative digital economy that ensures global abundance and promotes positive Karma
+- Local sustainability in symbiosis with the surrounding environment
+
+
+We are here to empower the ones who wish to bring meaning, happiness and growth in their lives or in lives of others. Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together as ONE, as a global family of Love and Light, well connected and organised, we can create a shared ecosystem and energy field, which will help each one of us tap into our infinite potential and bliss, with much greater ease. Only our sense of separation from the Existence makes us feel limited, lonely and negative. Bliss, spontaneity and love is our true nature, only shrouded by our viel of ignorance. Heaven is within us. Let us do the unvieling together!
 
 ## Way of Life
 
@@ -35,7 +59,7 @@ It is a shared aspiration of an attitude deemed fit for living a fulfilled and h
 
 ## Who am I?
 
-> I am that (indivisible, unborn, undying, formless, limitless, eternal Self, present equally, everywhere) 
+> **I am that** (indivisible, unborn, undying, formless, limitless, eternal Self, present equally, everywhere) 
 
 The ego-sense which feels a separate I from rest of the Existence, is an illusion. The real, spontaneous Self is without the other, or separation.
 
@@ -53,9 +77,9 @@ The same teaching is passed by all relegions, sages and prophets in different wo
 - [Advaya](https://en.wikipedia.org/wiki/Nondualism#Buddhism) (Buddhism)
 - [Non-dualism across all historical relegions and spiritual movements](https://en.wikipedia.org/wiki/Nondualism)
 
-Read more about the philosophy of non-duality [here](/philosophy), or just search on internet yourself to see how every relegion and prohet spoke the same in different words.*
+Read more about the philosophy of non-duality [here](/philosophy), or just search on internet yourself to see how every relegion and prohet spoke the same in different words.
 
-*If we truly realised this One Absolute Truth as an experiential reality, we would not be fighting, because we will all be aligned at the source, the center, the dot. There will be peace, prosperity and happiness for humanity. Every Sage, Saint or Prophet lovingly wished to unify humanity on the same principal.*
+*If we truly realised this One Absolute Truth as an experiential reality, we would not be fighting, because we will all be aligned at the source, the center, the dot. There will be peace, prosperity and happiness for humanity and all life on Earth. Every Sage, Saint or Prophet lovingly wished to unify humanity on the same principal.*
 
 ## Call to the tribe
 
