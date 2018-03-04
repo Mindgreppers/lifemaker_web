@@ -27,10 +27,9 @@ The aim of LifeMaker is to foster self-growth, love and happiness in everyone’
 
 - To live as a Universal family (with family and community based units)
 - To be fulfilled, happy and growing, on a moment to moment basis
-- To discover the nature of Self and live justfully with co-existence
+- To discover the nature of Self and live justfully with relationships and co-existence
 - To be a symbiotic, solution driven and justful family
-- To be inclusive, integral and open minded 
-- To be sustainable and thriving with neighboring families and local Nature
+- To use resources wisely, be sustainable and thrive with neighboring families and local Nature
 
 ## Our approach
 
