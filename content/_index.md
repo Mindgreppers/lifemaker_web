@@ -4,7 +4,7 @@ menu: main
 weight: -270
 ---
 
-## Some questions I ask to My Self
+## Am I truly happy and fulfilled? 
 Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am I not happy all the time? Do I do actions as a being of happiness or do I do actions, in order to be happy? Is it really helping? *Who am I*, really, (the One who is here right now)? Is there a purpose or grander scheme of things in being here and experiencing *all this*, in this form? Is there even a need to know the grander scheme? Or is it simply enough, to be My spontaneous, natural and happy Self? Is the happiness of My family, community, humanity, Co-existence not My happiness? How can We happy, together? Should something change, or *improve*? If yes, then what is it? Is it within, without or both? Do I, as in this human form, with this family and community, and do We, as humanity, have, the possibility, of a complete, mutually fulfilling, and justful approach, towards ensuring nutrition, health, safety, love, abundance, happiness, meaningful growth and Self-realisation for all families like mine, and all Nature? Are there others asking these same questions? Are there some who have answers? Are there some who are committed to, and or indeed *actually*, living this way? 
 
 *Are you facing questions or challenges - material to mind to spiritual, or from personal to family to social? Do you need any kind of help or insight?*
