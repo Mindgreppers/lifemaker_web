@@ -23,19 +23,20 @@ Don't forget to see some of our members call out to our Tribe at the bottom of t
 
 ## Our goals
 
-- Humanity's realisation of Self, as family and community based units
-- Mutual fulfillment, happiness and wellbeing
-  - Evolve and practice a justful and complete educational and co-living model
-  - A [Universal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0)
-  - Keep in mind: present and future, existence and co-existence, human and environment
-  - Adopt a five step family based [model](/model) - Satsangha (nutrition, safety, love, trust), discussion, study, contemplation and meditation
-  - Be natural and live in balance
+The aim of LifeMaker is to foster self-growth, love and happiness in everyone’s life. By connecting the global tribe of truth seekers and change makers, we aim to create the conditions for a new planetary culture of nutrition, health, love, trust, safety, Singular consciousness and justfulness in shared abundance.
+
+- To live as a Universal family (with family and community based units)
+- To be fulfilled, happy and growing, on a moment to moment basis
+- To discover the nature of Self and live justfully with co-existence
+- To be a symbiotic, solution driven and justful family
+- To be inclusive, integral and open minded 
+- To be sustainable and thriving with neighboring families and local Nature
 
 ## Our approach
 
-- Initial exploration with the curious ones
+- Initial exploration by the curious ones
   - Reading of the content on website and blog
-  - [Online forum](/forum) for anyone to ask any questions about Life or Lifemaker, get to know us, and the concept etc. 
+  - [Online forum](/forum) for anyone to ask any questions about Life or Lifemaker, get to know us, and the concept, integrate perspectives etc. 
   - Personal conversations through Email, video or voice call - ([Lifeline](/lifeline))
 - Induction of the families who wish to commit to this way of living 
   - Personal meetup and workshops
