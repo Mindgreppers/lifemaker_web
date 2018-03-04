@@ -4,70 +4,61 @@ menu: main
 weight: -270
 ---
 
-## Are you truly happy and fulfilled?
-Are you (plus your family and relationships) happy all the time or only for some fleeting moments? Do you do actions in happiness or do you do actions in order to be happy? Do you wonder who you truly are? Do you know what you really, really want or your purpose? Do you suffer for any reason? Do you question the status quo? Do you wish your family and relationships to do well? Do you wish the World to be a happier place and all life to flourish in mutual fulfillment? 
+## Some questions I ask to My Self
+Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am I not happy all the time? Do I do actions as a being of happiness or do I do actions, in order to be happy? Is it really helping? *Who am I*, really, (the One who is here right now)? Is there a purpose or grander scheme of things in being here and experiencing *all this*, in this form? Is there even a need to know the grander scheme? Or is it simply enough, to be My spontaneous, natural and happy Self? Is the happiness of My family, community, humanity, Co-existence not My happiness? How can We happy, together? Should something change, or *improve*? If yes, then what is it? Is it within, without or both? Do I, as in this human form, with this family and community, and do We, as humanity, have, the possibility, of a complete, mutually fulfilling, and justful approach, towards ensuring nutrition, health, safety, love, abundance, happiness, meaningful growth and Self-realisation for all families like mine, and all Nature? Are there others asking these same questions? Are there some who have answers? Are there some who are committed to, and or indeed *actually*, living this way? 
 
-> **We are here for you, to together realise the essence of existence and co-existence, feel safe and secure in a mutually fulfilling and justful environment, and be in a state of natural and spontaneous happiness all the time. We wish the best for every human, every human family, all life on Earth and all the future life to come.**
+*Are you facing questions or challenges - material to mind to spiritual, or from personal to family to social? Do you need any kind of help or insight?*
 
-## Lifeline
+## A friendly Lifeline is here for you 
 
-*Are you struggling at any front of life - material to mind to spiritual, from individual to family to social? Do you need any kind of help or insight? Do you wish to explore a meaningful life with us?*
-
-No matter what is your need or area of concern, we may be able to channelise help for you. Reach out to us through the [Lifeline service](/lifeline) today!
+No matter what is your question, need or concern, we will love to hear from you and do what we can - for we consider you as our Family. Reach out to us through [Lifeline service](/lifeline) today! 
 
 ## What is LifeMaker?
 
-> A global family for mutual fulfillment, enlightenment and happiness, glued by the spirit of Oneness and Integration - **All is One. One is All.**
+> Lifemaker is a Global Family with a simple, social and scientific approach towards mutually fulfilling and enlightened way of life, from Matter to Energy to Mind to Spirit. It is a methodical model for happiness of human (family) and its entire co-existence, in continuity. It is intended to be a living tradition, starting in present and lasting for all humanity, for all time to come. It is, and will forever be, based on certain values like self realisation, justfulness, inquisitiveness, wisdom, unconditional and same love etc. 
 
-#### Continuity of happiness, abundance, mutual fulfillment and solutions in totality
-We can all agree that everyone would like to be happy and fulfilled all the time. But that isn't happening for most of us, even in the presence of religious, philosophical and spiritual teachings by masters and prophets, and also the work done recently towards economy, education and "development". The state of global affairs is that each family (or idividual) is lovelessly left to fend for themselves. The same applies to all animal life, which has been deemed fit to stay in zoos and become extinct from nature. The imbalance between human and rest of animals and plants is making life unsustainable or degenrative for most species on earth. Why are we so selfish or unwise? Why are we distracted from our natural state of happiness by conflicts, struggle of survival, money, power, fame, selfishness and addictions and illusions at various levels. We need a justful and complete social solution that can *truly* be effective towards ensuring love, safety, nutrition, trust, mutual fulfillment, sustained happiness and enlightened living in the entirety of our co-existence. 
+Our family aspires to live by [an evolving, Universal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are an of people and for people family, its member units giving support to each other on a collective journey of Infinity on Earth, as One Unit. We wish to setup a tradition of Enlightened and Prosperous social living, which will include anyone with any background, who wishes for unconditional happiness as a continuous state. We are doing this for compassion (only), and with wisdom. We are Singular and Integral.
 
-#### Our values and aspirations 
-Our community aspires to live by [a Unversal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are a non-commercial, self-sustainable, of people and for people family. We are doing this for compassion (only), and with wisdom. We make you and you make us. We are here to tenderly empower humanity to
+Don't forget to see some of our members call out to our Tribe at the bottom of this page.
 
-- realise the nature of Self (existence and co-existence)
-- abide in continuous and mutual happiness, fulfillment, peace and love
-- apply justful and complete solutions for human and environmental needs
-  - food, nutrition and energy
-  - healthy environment to support all life forms
-  - distant travel and communication
-  - safety, comfort, love, trust, peace
+## Our goals
+
+- Humanity's realisation of Self, as family and community based units
+- Mutual fulfillment, happiness and wellbeing
+  - Evolve and practice a justful and complete educational and co-living model
+  - A [Universal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0)
+  - Keep in mind: present and future, existence and co-existence, human and environment
+  - Adopt a five step family based [model](/model) - Satsangha (nutrition, safety, love, trust), discussion, study, contemplation and meditation
+  - Be natural and live in balance
 
 ## Our approach
 
-- Come together as a Universal family made of smaller family units
-- Work towards mutual fulfillment, justful living and Self realisation in a systematic way
-- Adopt a [family based education approach](/model) for existential and co-existential education and co-living 
-- Act with wisdom and mutual support. 
-- Help each other compassionately and wisely, within micro unit families and as the Universal family
-- Live by a [Universal value system](/values) for harmonious, enlightening and abundant life
+- Initial exploration with the curious ones
+  - Reading of the content on website and blog
+  - [Online forum](/forum) for anyone to ask any questions about Life or Lifemaker, get to know us, and the concept etc. 
+  - Personal conversations through Email, video or voice call - ([Lifeline](/lifeline))
+- Induction of the families who wish to commit to this way of living 
+  - Personal meetup and workshops
+- Adopting a [family based education approach](/model) for existential and co-existential education and co-living 
+- Micro family units organising and helping each other as a Macro family, *in every meaningful way possible*
+- Living by a [Universal value system](/values) for harmonious, healthy, enlightening and abundant life
 - Co-ownership, conservation and right utilisation of resources
-- Natural and locally sustainable ways of food, production and cultivation of energy 
-- An internal economy that ensures financial abundance for the participating families
-
-
-Alone, as we all are in today's individualistic world, we are weak. Together, i.e. truly together as ONE, as a global family of Love and Light, well connected and organised as families of justful living, we can create a shared ecosystem and energy field, which will help each one of us tap into our infinite potential and bliss, with much greater ease. Only our sense of separation from the Existence makes us feel limited, lonely and negative. But co-existence is with Existence, and not separate from it. Bliss, spontaneity and love is our true nature, only shrouded by our viel of ignorance. Happiness is indeed within and between us. Let us do the unvieling together!
+- Living in villages and communities in symbiosis with nature
+- Being locally and mutually sustainable
+  - Natural farming with local sharing
+  - Being complementary and cooperative to the greatest extent possible
+  - Least dependence on imported goods or skills
+- Equally accessible information and learning resources to all
+- Children of all families are children of the Integral Family
+- Wellbeing of every member is wellbeing of the Integral Family
 
 ## Philosophy of Lifemaker: Who am I really?
 
-> **I am** (indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, present equally, everywhere). I am not only this body, mind or ego. I am ompnipresent Existence within which is co-existence. I am also present in void, where there is no-thing.
+> **I am** (indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, present equally, everywhere). I am, with everyone. 
 
-We wish this to be be a direct experience and realisation for everyone. We wish everyone to be a Master and Knower, with their knowing manifested in their relationships, family and work.
+We wish this statement to be be a direct experience and realisation for everyone. Like Moses, Jesus, Buddha, Prophet Mohammed, Krishna and so many others. We wish everyone to be a Master and Knower, and their knowing manifested in their relationships, family and work.
 
-You can read more about Lifemaker's philosophy and its backing by all major relegions and philosophies [here](/philosophy)
-
-## Call to the tribe
-
-> The humanly crisis, and the solution
-
-We are looking for those who resonate with us, to join us in the journey of Self realisation, love and eternal happiness.
-
-{{< youtube d_nsFjSuMUU >}}
-
-## Join Lifemaker (with your family)
-*We are your tribe, on a collective journey from separation to union, darkness to light, scarcity to abundance and misery to bliss.* 
-Shall you feel even the slightest resonance with the concept of Lifemaker, please contact us through one of our channels, and we shall schedule a call or meeting to take our relationship forward. Make sure you have read the [Universal Way of Life and Values charter](https://docs.google.com/document/d/1c3aAmHibXATFHTdiPUtU5l72mDubB-R3TiBNY0G7G-g/edit?ts=5a3edc29)!
-Read more about the way we see our membership [here](/membership)
+You can read more about Lifemaker's philosophy and its backing, by all major relegions and philosophies [here](/philosophy)
 
 ## What's happening now?
 
@@ -91,9 +82,16 @@ Read more about the way we see our membership [here](/membership)
 Since we are a for people and by people initiative, we thrive via mutual contribution and monetary donations.
 Shall you donate, it will help us 
 
-- recruit member families - do travel, workshops and events
-- build our technology and apps
-- maintain and promote the web presence
-- sustain the operations in general
+- Workshops, events, travel and communication
+- build and host our online resources, forum and applications
 - sustain some of our full time volunteers
+- operations and infrastructure building
+- needs of member families
 
+## Call to the tribe
+
+> The humanly crisis, and the solution
+
+We are looking for those who resonate with us, to join us in the journey of Self realisation, love and eternal happiness.
+
+{{< youtube d_nsFjSuMUU >}}
