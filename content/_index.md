@@ -33,10 +33,15 @@ The aim of LifeMaker is to foster a global and local collaboration for nutrition
 ## Our approach
 
 - Adopting a [family based approach](/model) for existential and co-existential education and co-living
+  - A union of at least two people with a common goal to live life together meanigfully, is being called a family
+  - Everyone is part of some family or other, whether by blood, friendship or Spirit.
+  - Those who find themselves completely isolated without anyone, are welcome to join any family from our Universal family
 - Micro family units organising and helping each other as a Macro family, *in every meaningful way possible*
 - Living by a [Universal value system](/values) for harmonious, healthy, enlightening and abundant life
 - Co-ownership, conservation and right utilisation of resources
 - Living in villages and communities in symbiosis with nature
+  - If city life is needed for some families, they can also live in mutual symbiosis in cities
+  - Yet those families must come and stay with village based families for at least some time every now and then
 - Being locally and mutually sustainable
   - Natural farming with local sharing
   - Being complementary and cooperative to the greatest extent possible
