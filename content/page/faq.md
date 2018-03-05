@@ -8,7 +8,7 @@ draft: false
 ## About
 
 #### Who are the people involved in this project?
-There are many people who’ve helped/inspired the LifeMaker project and have given an invaluable contribution to its inception. Currently we are two main contributors, joined by elders, volunteers and supporters in different roles. 
+There are many people who’ve helped/inspired the LifeMaker project and have given an invaluable contribution to its inception. Currently Ayush Ghai and Federico Peccini are helping coordinate the movement. We are joined by a bunch of elders, volunteers and supporters in different roles. 
 
 #### Can I join?
 Everyone is welcome to join. Our tribe welcomes people from any walk of life. Just that we wish you join with your family or community, with whom you live on an intimate basis, so that we are more effective. 
