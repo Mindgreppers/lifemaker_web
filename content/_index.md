@@ -11,7 +11,7 @@ Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am
 
 ## A friendly Lifeline is here for you 
 
-No matter what is your question, need or concern, we will love to hear from you and do what we can - for we consider you as our Family. Reach out to us through [Lifeline service](/lifeline) today! 
+No matter what is your question, need or concern, we will love to hear from you and do what we can - for we consider you as our Family. Our members with different kinds of expertise, will do their best to help you. Reach out to us through [Lifeline service](/lifeline) today! 
 
 ## What is LifeMaker?
 
