@@ -68,7 +68,6 @@ page = "" # Twitter page username
 titleSeparator = "•"
 
 [params.social]
-email = "hello@lifemaker.us"
 facebook = "lifemaker-app"
 twitter = "LifeMakerApp"
 

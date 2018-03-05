@@ -6,14 +6,14 @@ weight: -270
 ---
 #### Facing a question, trouble or challenge in life? 
 
-> Know who you truly are? Trouble finding your heart’s purpose, doing justice to relationships or sticking to your duties? Need help or insight of any kind? 
-
+> Know who you truly are? Trouble finding your heart’s purpose, in relationships or fulfilling your duties? Need help or insight of any kind? 
 
 We can help.
 
-As an unconditional gift to the world, our Lifemaker coaches offer preliminary life advice and support to anyone from all across the world, for free. If our interaction is stretched beyond first call or chat, we will request you to *donate as you can*, because we need to self-sustain. 
+As an unconditional gift to the world, our Lifemaker coaches offer preliminary life advice and support to anyone from all across the world, for free. For detailed advice, we will request you to *donate as you can*, because we need to self-sustain. 
 
-Reach out to us at +91-9882883272 on Watsapp or sms, send email to hello@lifemaker.us, or send us a message on Facebook. We support Hindi, English, Italian, Punjabi, Gaddi languages as of now.
+Reach out to us on Watsapp, email, or a message on Facebook. Our online forum will be live soon. We support Hindi, English, Italian, Punjabi, Gaddi languages as of now. Contact details are on the left of this page.
+
 After an initial conversation and understanding, we will put you in touch with the relevant experts, life coaches, benefactors or guides, who will do their best to help you with your particular query.
 
 #### Our areas of interest 

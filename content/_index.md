@@ -17,7 +17,7 @@ No matter what is your question, need or concern, we will love to hear from you 
 
 > Lifemaker is a Global Family with a simple, social and scientific approach towards mutually fulfilling and enlightened way of life, from Matter to Energy to Mind to Spirit. It is a methodical model for happiness of human (family) and its entire co-existence, in continuity. It is intended to be a living tradition, starting in present and lasting for all humanity, for all time to come. It is, and will forever be, based on certain values like self realisation, justfulness, inquisitiveness, wisdom, unconditional and same love etc. 
 
-Our family aspires to live by [an evolving, Universal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are an of people and for people family, its member units giving support to each other on a collective journey of Infinity on Earth, as One Unit. We wish to setup a tradition of Enlightened and Prosperous social living, which will include anyone with any background, who wishes for unconditional happiness as a continuous state. We are doing this for compassion (only), and with wisdom. We are Singular and Integral.
+Our family aspires to live by [an evolving, Universal Value System](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0). We are an of people and for people family, its member units giving support to each other on a collective journey of Infinity on Earth, as One Unit. We wish to setup a tradition of Enlightened and Prosperous social living, which will include anyone with any background, who wishes for unconditional happiness as a continuous state.
 
 Don't forget to see some of our members call out to our Tribe at the bottom of this page.
 
@@ -28,13 +28,11 @@ The aim of LifeMaker is to foster a global and local collaboration for nutrition
 - Mutually fulfilled, happy and growing families, joined together as One Universal Family
 - To discover the nature of Self and live justfully with all relationships in co-existence
 - To conserve and use resources wisely
-- To be locally sustainable clusters of families living *in symbiosis with* local Nature
+- To be locally sustainable clusters of families living *in symbiosis with* each other and local Nature
 
 ## Our approach
 
- Induction of the families who wish to commit to this way of living 
-  - Personal meetup and workshops
-- Adopting a [family based education approach](/model) for existential and co-existential education and co-living 
+- Adopting a [family based approach](/model) for existential and co-existential education and co-living
 - Micro family units organising and helping each other as a Macro family, *in every meaningful way possible*
 - Living by a [Universal value system](/values) for harmonious, healthy, enlightening and abundant life
 - Co-ownership, conservation and right utilisation of resources
