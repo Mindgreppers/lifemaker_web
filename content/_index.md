@@ -23,21 +23,16 @@ Don't forget to see some of our members call out to our Tribe at the bottom of t
 
 ## Our goals
 
-The aim of LifeMaker is to foster self-growth, love and happiness in everyone’s life. By connecting the global tribe of truth seekers and change makers, we aim to create the conditions for a new planetary culture of nutrition, health, love, trust, safety, Singular consciousness and justfulness in shared abundance.
+The aim of LifeMaker is to foster a global and local collaboration for nutrition, health, abundance, love, happiness, trust, symbiosis, self-growth and self-realisation in every family. By connecting the global tribe as families of truth seekers and change makers, we aim to create the conditions for a *new planetary culture of Enlightened consciousness, continuous happiness and justfulness in shared abundance*.
 
-- To live as a Universal family (with family and community based units)
-- To be fulfilled, happy and growing, on a moment to moment basis
-- To discover the nature of Self and live justfully with relationships and co-existence
-- To be a symbiotic, solution driven and justful family
-- To use resources wisely, be sustainable and thrive with neighboring families and local Nature
+- Mutually fulfilled, happy and growing families, joined together as One Universal Family
+- To discover the nature of Self and live justfully with all relationships in co-existence
+- To conserve and use resources wisely
+- To be locally sustainable clusters of families living *in symbiosis with* local Nature
 
 ## Our approach
 
-- Initial exploration by the curious ones
-  - Reading of the content on website and blog
-  - [Online forum](/forum) for anyone to ask any questions about Life or Lifemaker, get to know us, and the concept, integrate perspectives etc. 
-  - Personal conversations through Email, video or voice call - ([Lifeline](/lifeline))
-- Induction of the families who wish to commit to this way of living 
+ Induction of the families who wish to commit to this way of living 
   - Personal meetup and workshops
 - Adopting a [family based education approach](/model) for existential and co-existential education and co-living 
 - Micro family units organising and helping each other as a Macro family, *in every meaningful way possible*
@@ -52,18 +47,27 @@ The aim of LifeMaker is to foster self-growth, love and happiness in everyone’
 - Children of all families are children of the Integral Family
 - Wellbeing of every member is wellbeing of the Integral Family
 
-## Philosophy of Lifemaker: Who am I really?
+## Philosophy: Who am I?
 
-> **I am** (indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, present equally, everywhere). I am, with everyone. 
+> **I am** (Existence, indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, forever same, omnipresent, transcendental). **I am (Existence), with everyone (Co-existence).** 
 
-We wish this statement to be be a direct experience and realisation for everyone. Like Moses, Jesus, Buddha, Prophet Mohammed, Krishna and so many others. We wish everyone to be a Master and Knower, and their knowing manifested in their relationships, family and work.
+Every one, has the same nature of Self within, because it is our True nature. This revelation is equally accessible to everyone, and we experience it in moments as pure Happiness or Love. Can this state be spontaneous and continuous? Moses, Jesus, Buddha, Prophet Mohammed, Krishna, Nanak, Rumi, Osho, Krishnamurthy, Ramana Maharishi and millions of others throughout our history have experienced and shared this with us for our benefit, *in different ways*. Everyone can be a Master and Knower, and their knowing be beautifully manifested in their relationships, family and work. This is what we, as modern humans, wish for present and future Humanity.
 
-You can read more about Lifemaker's philosophy and its backing, by all major relegions and philosophies [here](/philosophy)
+You can read more about the philosophy of non-duality and duality and its backing, by all major relegions, prophets, masters and philosophers [here](/philosophy)
+
+## Interested in Lifemaker?
+Let us do an initial exploration of possibilities together
+
+  - Please read the content on our website and blog
+  - Get in touch with us personally through Email, watsapp, video or voice call - ([Lifeline](/lifeline))
+  - (Coming soon) Use [Online forum](/forum) to ask any questions about Life or Lifemaker, get to know us, and the concept, integrate perspectives etc. 
+-
 
 ## What's happening now?
 
 * Lifeline counselling for Life support - gathering experts and spreading the word for seekers to reach out
 * Work on the website, blog, charter of living
+* Setting up the online forum
 * Networking with people from across the world
 * Workshops on demand
 * Starting the development of the daily self check app (which will help people analyse and improve themselves daily as their personal guide)
@@ -80,13 +84,14 @@ You can read more about Lifemaker's philosophy and its backing, by all major rel
 # Donate
 
 Since we are a for people and by people initiative, we thrive via mutual contribution and monetary donations.
+In order to donate please get in touch with us via email or Watsapp, as we don't have an online payment mechanism right now. 
 Shall you donate, it will help us 
 
+- operations and infrastructure building
 - Workshops, events, travel and communication
 - build and host our online resources, forum and applications
-- sustain some of our full time volunteers
-- operations and infrastructure building
-- needs of member families
+- help sustain our full time contributors
+- empowering help to member families
 
 ## Call to the tribe
 
