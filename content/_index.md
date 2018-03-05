@@ -5,7 +5,7 @@ weight: -270
 ---
 
 ## Am I truly happy and fulfilled? 
-Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am I not happy all the time? Do I do actions as a being of happiness or do I do actions, in order to be happy? Is it really helping? *Who am I*, really, (the One who is here right now)? Is there a purpose or grander scheme of things in being here and experiencing *all this*, in this form? Is there even a need to know the grander scheme? Or is it simply enough, to be My spontaneous, natural and happy Self? Is the happiness of My family, community, humanity, Co-existence not My happiness? **How can We be happy together?** Should something change, or *improve*? If yes, then what is it? Is it within, without or both? Do I, as in this human form, with this family and community, and do We, as humanity, have the possibility, of a complete, mutually fulfilling, and justful approach, towards ensuring nutrition, health, safety, love, abundance, happiness, meaningful growth and Self-realisation for all families like mine? Can we live in symbiosis with Nature, as equals with all animal and plant species? Are there others asking these same questions? Are there some who have answers? Are there some who are committed to, and or indeed *actually*, living this way? 
+Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am I not happy all the time? Do I do actions as a being of happiness or do I do actions, in order to be happy? Do external agents or conditions give me happiness or is this intrinsic? *Who am I*, really, (the One who is here right now)? Is there a purpose or grander scheme of things in being here and experiencing *all this*, in this form? Is there even a need to know the grander scheme? Or is it simply enough, to be My spontaneous, natural and happy Self? Is the happiness of My family, community, humanity, Co-existence not My happiness? Can we truly prosper in silos, as it is today? **How can We be happy together?** Should something change, or *improve*? If yes, then what is it? Is it within, without or both? Do I, as in this human form, with this family and community, and do We, as humanity, have the possibility, of a complete, mutually fulfilling, and justful approach, towards ensuring nutrition, health, safety, love, abundance, happiness, meaningful growth and Self-realisation for all families like mine? Can we live in symbiosis with Nature, as equals with all animal and plant species? Are there others asking these same questions? Are there some who have answers? Are there some who are committed to, and or indeed *actually*, living this way? 
 
 *Are you facing questions or challenges - material to mind to spiritual, or from personal to family to social? Do you need any kind of help or insight? Or do you wish to share an insight?*
 
@@ -15,7 +15,7 @@ No matter what is your question, need or concern, we will love to hear from you 
 
 ## What is LifeMaker?
 
-> Lifemaker is a Global Family with a simple, social and scientific approach towards mutually fulfilling and enlightened way of life, from Matter to Energy to Mind to Spirit. It is a methodical model for happiness of human (family) and its entire co-existence, in continuity. It is intended to be a living tradition, starting in present and lasting for all humanity, for all time to come. It is, and will forever be, based on certain values like self realisation, justfulness, inquisitiveness, wisdom, unconditional and same love etc. 
+> Lifemaker is a Global Family with a simple, social and scientific approach towards mutually fulfilling and enlightened way of life, at all levels of Existence, from *Matter to Energy to Mind to Spirit*. It is a methodical model for happiness of human (family) and its entire co-existence, in continuity. It is intended to be a living tradition, starting in present and lasting for all humanity, for all time to come. It is, and will forever be, based on certain values like self realisation, justfulness, inquisitiveness, wisdom, unconditional and same love etc. 
 
 Our family aspires to live by [an evolving, Universal Value System](/values). We are an of people and for people family, its member units giving support to each other on a collective journey of Infinity on Earth, as One Unit. We wish to setup a tradition of Enlightened and Prosperous social living, which will include anyone with any background, who wishes for unconditional happiness as a continuous state.
 
@@ -32,11 +32,12 @@ The aim of LifeMaker is to foster a global and local collaboration for nutrition
 
 ## Our approach
 
+- Adopt a *complete solution* covering (every) family's material, mental and spiritual needs
 - Adopting a family based approach for existential and co-existential [education](/model) and [value based co-living](/values)
   - A union of at least two people with a common goal to live life together meanigfully, is being called a family
   - Everyone is part of some family or other, whether by blood, friendship or Spirit.
   - Those who find themselves completely isolated without anyone, are welcome to join any family from our Universal family
-- Micro family units organising and helping each other as a Macro family, *in every meaningful way possible*
+- Helping each other *in every meaningful way possible*
 - A mutual understanding of co-ownership, conservation and right utilisation of any resources
 - Living in villages and communities in symbiosis with nature
   - If city life is needed for some families, they can also live in mutual symbiosis in cities
@@ -53,7 +54,7 @@ The aim of LifeMaker is to foster a global and local collaboration for nutrition
 
 > **I am** (Existence, indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, forever same, omnipresent, transcendental). **I am (Existence), with everyone (Co-existence).** 
 
-Every one, has the same nature of Self within, because it is our True nature. This revelation is equally accessible to everyone, and we experience it in moments as pure Happiness or Love. Can this state be spontaneous and continuous? Moses, Jesus, Buddha, Prophet Mohammed, Krishna, Nanak, Rumi, Osho, Krishnamurthy, Ramana Maharishi and millions of others throughout our history have experienced and shared this with us for our benefit, *in different ways*. Everyone can be a Master and Knower, and their knowing be beautifully manifested in their relationships, family and work. This is what we, as modern humans, wish for present and future Humanity.
+Every one, has the same nature of Self within, because it is our True nature. This revelation is equally accessible to everyone, and we experience it in moments as pure Happiness or Love. Moses, Jesus, Buddha, Prophet Mohammed, Krishna, Nanak, Rumi, Osho, Krishnamurthy, Ramana Maharishi and millions of others throughout our history have experienced and shared this with us for our benefit, *in different ways*. But we don't see people really happy, despite the material "development" in last century. Why doesn't the wise teachings of our ancestors work for us today? What is lacking? We want to find and fill that lacking. Everyone can be a Master and Knower, and their knowing be beautifully manifested in their relationships, family and work. This is what we, as modern humans, wish for present and future Humanity.
 
 You can read more about the philosophy of non-duality and duality and its backing, by all major relegions, prophets, masters and philosophers [here](/philosophy)
 
