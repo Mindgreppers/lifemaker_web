@@ -4,97 +4,75 @@ menu: main
 weight: -270
 ---
 
-## Am I truly happy and fulfilled? 
-Is happiness my spontaneous nature? If not, is it my desire? If yes, then why am I not happy all the time? Do I do actions as a being of happiness or do I do actions, in order to be happy? Do external agents or conditions give me happiness or is this intrinsic? *Who am I*, really, (the One who is here right now)? Is there a purpose or grander scheme of things in being here and experiencing *all this*, in this form? Is there even a need to know the grander scheme? Or is it simply enough, to be My spontaneous, natural and happy Self? Is the happiness of My family, community, humanity, Co-existence not My happiness? Can we truly prosper in silos, as it is today? **How can We be happy together?** Should something change, or *improve*? If yes, then what is it? Is it within, without or both? Do I, as in this human form, with this family and community, and do We, as humanity, have the possibility, of a complete, mutually fulfilling, and justful approach, towards ensuring nutrition, health, safety, love, abundance, happiness, meaningful growth and Self-realisation for all families like mine? Can we live in symbiosis with Nature, as equals with all animal and plant species? Are there others asking these same questions? Are there some who have answers? Are there some who are committed to, and or indeed *actually*, living this way? 
+## Yes, there can be heaven on Earth. Every human family can be enlightened. Happiness and auspiciousness can be everlasting human tradition.
 
-*Are you facing questions or challenges - material to mind to spiritual, or from personal to family to social? Do you need any kind of help or insight? Or do you wish to share an insight?*
+**The change can start with your family today!**  
+
+> Lifemaker is a global and local collaboration by families for *good and only good*; in co-existence 
+
+*Are you or your family facing questions or challenges - material, mental, spiritual, personal, familial or social? Do you need any kind of help or insight? Or do you wish to share an insight or collaborate in any manner?*
 
 ## A friendly Lifeline is here for you 
 
-No matter what is your question, need or concern, we will love to hear from you and do what we can - for we consider you as our Family. Our members with different kinds of expertise, will do their best to help you. Reach out to us through [Lifeline service](/lifeline) today! 
+No matter what is your question, need, suggestion or concern, we will love to hear from you and do what we can - for we consider you as our Family. Our members with different backgrounds, will do their best to help you. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
-## What is LifeMaker?
 
-> Lifemaker is a Global Family with a simple, social and scientific approach towards mutually fulfilling and enlightened way of life, at all levels of Existence, from *Matter to Energy to Mind to Spirit*. It is a methodical model for happiness of human (family) and its entire co-existence, in continuity. It is intended to be a living tradition, starting in present and lasting for all humanity, for all time to come. It is, and will forever be, based on certain values like self realisation, justfulness, inquisitiveness, wisdom, unconditional and same love etc. 
+## Our goals are 
 
-Our family aspires to live by [an evolving, Universal Value System](/values). We are an of people and for people family, its member units giving support to each other on a collective journey of Infinity on Earth, as One Unit. We wish to setup a tradition of Enlightened and Prosperous social living, which will include anyone with any background, who wishes for unconditional happiness as a continuous state.
+- Prosperous, happy and enlightened human families, in justful co-existence. 
+- Heaven on Earth
+- Benevolent Humanity
+- Auspiciousness for all time
 
 Don't forget to see some of our members call out to our Tribe at the bottom of this page.
 
-## Our goals
-
-The aim of LifeMaker is to foster a global and local collaboration for nutrition, health, abundance, love, happiness, trust, symbiosis, self-growth and self-realisation in every family. By connecting the global tribe as families of truth seekers and change makers, we aim to create the conditions for a *new planetary culture of Enlightened consciousness, continuous happiness and justfulness in shared abundance*.
-
-- Mutually fulfilled, happy and growing families, joined together as One Universal Family
-- To discover the nature of Self and live justfully with all relationships in co-existence
-- To conserve and use resources wisely
-- To be locally sustainable clusters of families living *in symbiosis with* each other and local Nature
-
 ## Our approach
 
-- Adopt a *complete solution* covering (every) family's material, mental and spiritual needs
-- Adopting a family based approach for existential and co-existential [education](/model) and [value based co-living](/values)
-  - A union of at least two people with a common goal to live life together meanigfully, is being called a family
-  - Everyone is part of some family or other, whether by blood, friendship or Spirit.
-  - Those who find themselves completely isolated without anyone, are welcome to join any family from our Universal family
-- Helping each other *in every meaningful way possible*
-- A mutual understanding of co-ownership, conservation and right utilisation of any resources
-- Living in villages and communities in symbiosis with nature
-  - If city life is needed for some families, they can also live in mutual symbiosis in cities
-  - Yet those families must come and stay with village based families for at least some time every now and then
-- Being locally and mutually sustainable
-  - Natural farming with local sharing
-  - Being complementary and cooperative to the greatest extent possible
-  - Least dependence on imported goods or skills
-- Equally accessible information and learning resources to all
-- Children of all families are children of the Integral Family
-- Wellbeing of every member is wellbeing of the Integral Family
+Our family aspires to live by [an evolving, Universal Value System](/values). Our members serve each other, Humanity and Earth in every meaningful way possible. We welcome families from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living that way.
 
-## Philosophy: Who am I?
-
-> **I am** (Existence, indivisible, integral, unborn, undying, formless, limitless, timeless, eternal Self, forever same, omnipresent, transcendental). **I am (Existence), with everyone (Co-existence).** 
-
-Every one, has the same nature of Self within, because it is our True nature. This revelation is equally accessible to everyone, and we experience it in moments as pure Happiness or Love. Moses, Jesus, Buddha, Prophet Mohammed, Krishna, Nanak, Rumi, Osho, Krishnamurthy, Ramana Maharishi and millions of others throughout our history have experienced and shared this with us for our benefit, *in different ways*. But we don't see people really happy, despite the material "development" in last century. Why doesn't the wise teachings of our ancestors work for us today? What is lacking? We want to find and fill that lacking. Everyone can be a Master and Knower, and their knowing be beautifully manifested in their relationships, family and work. This is what we, as modern humans, wish for present and future Humanity.
-
-You can read more about the philosophy of non-duality and duality and its backing, by all major relegions, prophets, masters and philosophers [here](/philosophy)
+- **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
+  - Attend one of our introductory workshops of 7 days
+- **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
+  - Live together in a cooperative, complimentary, justful and mutually fulfilling way 
+- **Prove and replicate a standard model for existential and co-existential [education](/model) and [value based co-living](/values)**
+  - The family is the fundamental Unit, instead of individual
+  - Our package will empower families on health and nutrition, production, exchange, education and enlightenment
+  - The package is aimed to help them live in a mutually fulfilling way; within itself and with its neighborhood
+- **Live at grassroots with village based communities; in symbiosis with each other and all Nature** 
+  - Share and utilise land, water and resources in the right manner
+  - Be as much locally self-reliant as possible
+  - Support the needs of local member families
+  - Conduct residential programs for immersive co-living, skills and knowledge sharing
+  - Invite families from outside to learn and share
+- **Have complimentary production, exchange and cooperation at local level**
+  - Emphasise on Natural farming, eco-businesses/services, living skills and physical work
+  - Produce, share and use justfully, and as locally as possible
+- **Keep learning** 
+  - Have regular community gatherings to discuss on Life and current state of affairs in Living
+  - Provide facility for internet access and remote communication
+  - Have workshops, programs and events for exposure, skills and knowledge
+- **Connect globally as a United Enlightened family**
+  - Develop tools and means for remote cooperation and collaboration
+  - Fund travel expenses for learning or teaching
+  - Support member communities and families meaningfully; in all ways possible
+- **Serve Family, Humanity and Earth** 
+  - Make the world a happier, better and more sustainable place for all Life forms, in present and future 
+  - Prosperous, happy and enlightened family. Heaven on Earth. Benevolence in Humanity. Auspiciousness as a tradition.
 
 ## Interested in Lifemaker?
-Let us do an initial exploration of possibilities together
 
-  - Please read the content on our website and blog
-  - Get in touch with us personally through Email, watsapp, video or voice call - ([Lifeline](/lifeline))
+  - Get in touch via Email, watsapp, video or voice call - ([Lifeline](/lifeline))
+  - Join one of our workshops (In June)
   - (Coming soon) Use [Online forum](/forum) to ask any questions about Life or Lifemaker, get to know us, and the concept, integrate perspectives etc. 
 -
 
-## What's happening now?
-
-* Lifeline counselling for Life support - gathering experts and spreading the word for seekers to reach out
-* Work on the website, blog, charter of living
-* Setting up the online forum
-* Networking with people from across the world
-* Workshops on demand
-* Starting the development of the daily self check app (which will help people analyse and improve themselves daily as their personal guide)
-* Setting up internal communication mechanisms
-
 ## Contribute
-* Join our database of experts to advice and support others in different ways
-* Donate funds or help raise funds
+* Join as an expert 
+* Help on ground or for online work
 * Suggest lifeline to your friends in need
+* Donate funds or help raise funds
 * Be of design or technical help
-* Help create the whitepaper for an [alternative global economy](/economy) for our tribe
-* Suggest Lifemakers to your friends who will resonate and can be potential members 
-
-# Donate
-
-Since we are a for people and by people initiative, we thrive via mutual contribution and monetary donations.
-In order to donate please get in touch with us via email or Watsapp, as we don't have an online payment mechanism right now. 
-Shall you donate, it will help us 
-
-- operations and infrastructure building
-- Workshops, events, travel and communication
-- build and host our online resources, forum and applications
-- help sustain our full time contributors
-- empowering help to member families
+* Spread the word
 
 ## Call to the tribe
 
