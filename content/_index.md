@@ -24,8 +24,6 @@ No matter what is your question, need, suggestion or concern, we will love to he
 - Benevolent Humanity
 - Auspiciousness for all time
 
-Don't forget to see some of our members call out to our Tribe at the bottom of this page.
-
 ## Our approach
 
 Our family aspires to live by [an evolving, Universal Value System](/values). Our members serve each other, Humanity and Earth in every meaningful way possible. We welcome families from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living that way.
