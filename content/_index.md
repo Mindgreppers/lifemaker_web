@@ -16,13 +16,13 @@ weight: -270
 - Benevolent Humanity
 - Auspiciousness as an unfading tradition of Humanity 
 
-Together as One Universal Family, **we understand Human Being and Life in an open frame**, and we bring in all our perspectives and material, mental and spiritual resources together, to protect and nurture Life, and grow together in abundance on Earth.
-
-Do you and your family wish to be happy? Do you wish to understand Life better and live in continuity of mutual security, nourishment, understanding, fulfillment and happiness? Are you struggling anywhere? Are you curious about Lifemaker? *You can ask us anything under Life and Living, Existence and Co-existence.* 
+**First we understand Existence and Co-existence in an open frame**. Then, as an family integrated by the same understanding, we pool in our perspectives and resources, to protect and nurture our families, and grow together in abundance on Earth.
 
 ## A friendly Lifeline is here for you 
 
-No matter what is your question, need, suggestion or concern, we will love to hear from you and do what we can - for we consider you as our Family. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
+*You can ask us anything. And we shall together investigate.* 
+
+No matter what is your question, need or suggestion, we will love to hear from you. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
 ## Our approach
 
@@ -68,7 +68,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - Meeting and sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
 - Scouting for a base
 - Gathering the core team
-- Evolving the family package with help from Lifemaker members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) teams
+- Evolving the family package with help from Lifemaker members, [Madhyastha Darshan - the Enlightened Family](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) teams
   - Madyastha Darshan is Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems.
 
 ## Participate and contribute
