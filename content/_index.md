@@ -5,11 +5,11 @@ weight: -270
 ---
 
 ## Happiness (in continuity)
-**is the ultimate desire behind all human desires. It comes from understanding and knowing Existence and Co-existence, and thus living accordingly.**
+**We can all agree that happiness is the ultimate desire behind all human desires.** It comes from understanding and knowing Existence and Co-existence; and living accordingly.
 
 > Lifemaker is a movement towards good, for every Human (family), and all Earth.
 
-As a growing family integrated by the same understanding, we are pooling in our perspectives and resources, to protect and nurture Humanity and Earth, and play together in abundance.
+As a growing family integrated by the same understanding, we are pooling in our perspectives and resources, to protect and nurture Humanity and Earth, and thrive together in abundance.
 
 ## A friendly Lifeline is here for you 
 
