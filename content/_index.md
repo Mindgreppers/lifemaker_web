@@ -50,9 +50,11 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - Fund travel expenses for learning or teaching
   - Support member communities and families for safety, prosperity and evolution
   - Heal ourselves and all Earth; conserve resources and use rightfully
-- **Serve Family, Humanity and Earth** 
-  - Happiness can only be experienced in companionship
-  - Let living be dedicated to the good of all co-existence, starting with family.
+- **Create a timeless tradition which** 
+  - Is proven to ensure continuous happiness and mutual fulfillment for Human society and Earth
+  - Is holistic, integral, rational and open
+  - Works as a wisdom and compassion centric system and order.
+  - Guides humanity for as long as it lasts (Hopefully much more than a hundred years as some say). 
 
 ## What's happening?
 - **7 day workshop cum retreat in May and June in Dharamsala, HP, India. You can register as family**
