@@ -4,23 +4,16 @@ menu: main
 weight: -270
 ---
 
-## Heaven on Earth. Enlightened Human Family. Happiness and Auspiciousness in continuity.
+## Happiness (in continuity)
+**is the ultimate desire behind all human desires. It comes from understanding and knowing Existence and Co-existence, and thus living accordingly.**
 
-**A prosperous and happy family means prosperous and happy individuals, society and Earth. Happiness is the real pursuit behind all our pursuits. It is available right here for taking! No matter what the circumstances, you and your family can bring in the necessary change starting today!**  
+> Lifemaker is a movement towards good, for every Human (family), and all Earth.
 
-> Lifemaker is a movement towards good, for every Human (family), and all Earth.  
-
-## The intention
-- Prosperous, happy and enlightened human families, in justful co-existence. 
-- Heaven on Earth
-- Benevolent Humanity
-- Auspiciousness as an unfading tradition of Humanity 
-
-**First we understand Existence and Co-existence in an open frame**. Then, as an family integrated by the same understanding, we pool in our perspectives and resources, to protect and nurture our families, and grow together in abundance on Earth.
+As a growing family integrated by the same understanding, we are pooling in our perspectives and resources, to protect and nurture Humanity and Earth, and play together in abundance.
 
 ## A friendly Lifeline is here for you 
 
-*You can ask us anything. And we shall together investigate.* 
+*You can ask us anything. And we shall together explore and investigate.* 
 
 No matter what is your question, need or suggestion, we will love to hear from you. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
@@ -73,7 +66,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 
 ## Participate and contribute
 * First, we should arrive on the same page and share a common understanding.
-  * We invite the curious families to come for one of our workshops with family (at least two people, together for life)
+  * We invite the curious families to come for one of our [workshops](/workshops-and-retreats/) with family (at least two people, together for life)
   * Speak to us remotely through Lifeline
 * When the understanding will dawn, what is to be done will be known, and will also happen.
 * Tell others who feel the need for a change in their lives right away! Call out to our tribe!
