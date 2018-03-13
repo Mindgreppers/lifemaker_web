@@ -53,8 +53,8 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - **Create a timeless tradition which** 
   - Is proven to ensure continuous happiness and mutual fulfillment for Human society and Earth
   - Is holistic, integral, rational and open
-  - Works as a wisdom and compassion centric system and order.
-  - Guides humanity for as long as it lasts (Hopefully much more than a hundred years as some say). 
+  - Works as a justful and wise system and order.
+  - Guides every new born child on the path of everlasting happiness in justful co-existence, for as long as humanity lasts (Hopefully much more than a hundred years as some say). 
 
 ## What's happening?
 - **7 day workshop cum retreat in May and June in Dharamsala, HP, India. You can register as family**
