@@ -53,8 +53,8 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - Have regular community gatherings to discuss on Life and current state of affairs in Living
   - Provide facility for internet access and remote communication
   - Have workshops, programs and events for exposure, skills and knowledge
-- **Connect globally as Enlightened Human family**
-  - Develop tools and means for remote cooperation and collaboration
+- **Connect and cooperate globally as Enlightened Human family**
+  - Develop tools and means for remote communication and collaboration
   - Fund travel expenses for learning or teaching
   - Support member communities and families for prosperity and evolution
   - Heal ourselves and all Earth; conserve resources and use rightfully
