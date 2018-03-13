@@ -67,9 +67,12 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - Website and content
 - Meeting and sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
 - Scouting for a base
+- Gathering the core team
+- Evolving the family package with help from Lifemaker members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) teams
+  - Madyastha Darshan is Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems.
 
 ## Participate and contribute
-* Let's first arrive on the same page and share a common understanding.
+* First, we should arrive on the same page and share a common understanding.
   * We invite the curious families to come for one of our workshops with family (at least two people, together for life)
   * Speak to us remotely through Lifeline
 * When the understanding will dawn, what is to be done will be known, and will also happen.
