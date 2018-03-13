@@ -11,11 +11,10 @@ weight: -270
 > Lifemaker is a movement towards good, for every Human (family), and all Earth.  
 
 ## The intention
-
 - Prosperous, happy and enlightened human families, in justful co-existence. 
 - Heaven on Earth
 - Benevolent Humanity
-- Auspiciousness for all time
+- Auspiciousness as an unfading tradition of Humanity 
 
 Together as One Universal Family, **we understand Human Being and Life in an open frame**, and we bring in all our perspectives and material, mental and spiritual resources together, to protect and nurture Life, and grow together in abundance on Earth.
 
@@ -35,6 +34,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - Identify and serve the *real* needs and spend least on entertainment.
   - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
 - **Prove and replicate a standard model for existential and co-existential [education](/model) and [value based co-living](/values)**
+  - In a systematic way
   - The family is the fundamental Unit, instead of individual
   - Our package will empower families on health and nutrition, production, exchange, education and enlightenment
   - The package is aimed to help them live in a mutually fulfilling way; within itself and with its neighborhood
