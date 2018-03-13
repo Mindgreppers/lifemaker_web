@@ -10,7 +10,7 @@ weight: -270
 
 > Lifemaker is a movement towards good, for every Human (family), and all Earth.  
 
-## The compassionate intention
+## The intention
 
 - Prosperous, happy and enlightened human families, in justful co-existence. 
 - Heaven on Earth
