@@ -7,7 +7,7 @@ weight: -270
 ## Happiness (in continuity)
 **We can all agree that happiness is the ultimate desire behind all human desires.** It comes from understanding and knowing Existence and Co-existence; and living accordingly.
 
-> Lifemaker is a movement towards good, for every Human (family), and all Earth.
+> Lifemaker is a movement for holistic good of every Human (family), and all Earth.
 
 As a growing family integrated by the same understanding, we are pooling in our perspectives and resources, to protect and nurture Humanity and Earth, and thrive together in abundance.
 
