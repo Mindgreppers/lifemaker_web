@@ -38,7 +38,6 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - Support the needs of local member families
   - Conduct residential programs for immersive co-living, skills and knowledge sharing
   - Member families in cities are also invited to live by the Lifemaker way in the context of cities.
-  - Welcome outsiders to visit village or city communities to learn and share
 - **Have complimentary production, exchange and cooperation at local level**
   - Emphasise on Natural farming, eco-businesses/services, living skills and physical work
   - Produce, share and use justfully, and as locally as possible
