@@ -10,7 +10,7 @@ weight: -270
 
 > Lifemaker is a movement towards good, for every Human (family), and all Earth.  
 
-## The intention is 
+## The compassionate intention
 
 - Prosperous, happy and enlightened human families, in justful co-existence. 
 - Heaven on Earth
@@ -32,11 +32,12 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
   - Attend one of our introductory workshops of 7 days
 - **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
+  - Identify and serve the *real* needs and spend least on entertainment.
   - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
 - **Prove and replicate a standard model for existential and co-existential [education](/model) and [value based co-living](/values)**
   - The family is the fundamental Unit, instead of individual
-  - Our gift package will empower families on health and nutrition, production, exchange, education and enlightenment
-  - The gift package is aimed to help them live in a mutually fulfilling way; within itself and with its neighborhood
+  - Our package will empower families on health and nutrition, production, exchange, education and enlightenment
+  - The package is aimed to help them live in a mutually fulfilling way; within itself and with its neighborhood
   - We are kick-starting from villages of Dharamsala, Himachal Pradesh, India. Looking for at least ten local families to opt in, in coming weeks. Once the model kicks in with them, we move forward. 
 - **Live at grassroots with village based communities; in symbiosis with each other and all Nature** 
   - Share and utilise land, water and resources in the right manner
@@ -44,8 +45,6 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - Support the needs of local member families
   - Conduct residential programs for immersive co-living, skills and knowledge sharing
   - Invite families from outside to learn and share
-  - Spend the least on entertainment
-  - Identify and serve only *real* needs
 - **Have complimentary production, exchange and cooperation at local level**
   - Emphasise on Natural farming, eco-businesses/services, living skills and physical work
   - Produce, share and use justfully, and as locally as possible
@@ -56,14 +55,14 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - **Connect and cooperate globally as Enlightened Human family**
   - Develop tools and means for remote communication and collaboration
   - Fund travel expenses for learning or teaching
-  - Support member communities and families for prosperity and evolution
+  - Support member communities and families for safety, prosperity and evolution
   - Heal ourselves and all Earth; conserve resources and use rightfully
 - **Serve Family, Humanity and Earth** 
   - Happiness can only be experienced in companionship
   - Let living be dedicated to the good of all co-existence, starting with family.
 
 ## What's happening?
-- **Ongoing 7 day workshops (March 21-28, Bijnor, UP, India. May and June in Dharamsala, HP, India)**
+- **7 day workshop cum retreat in May and June in Dharamsala, HP, India. You can register as family**
 - Online forum setup
 - Website and content
 - Meeting and sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
