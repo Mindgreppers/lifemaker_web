@@ -6,7 +6,7 @@ weight: -270
 
 ## Heaven on Earth. Enlightened Human Family. Happiness and Auspiciousness in continuity.
 
-**A prosperous and happy family means a prosperous and happy individuals, society and Earth. No matter what the circumstances, your family can bring in the necessary change starting today!**  
+**A prosperous and happy family means prosperous and happy individuals, society and Earth. Happiness is the real pursuit behind all our pursuits. It is available right here for taking! No matter what the circumstances, you and your family can bring in the necessary change starting today!**  
 
 > Lifemaker is a movement towards good, for every Human (family), and all Earth.  
 
@@ -17,7 +17,7 @@ weight: -270
 - Benevolent Humanity
 - Auspiciousness for all time
 
-Together as One Universal Family, we bring in all our material, mental and spiritual resources to protect and nurture Life, and grow together in abundance on Earth.
+Together as One Universal Family, **we understand Human Being and Life in an open frame**, and we bring in all our perspectives and material, mental and spiritual resources together, to protect and nurture Life, and grow together in abundance on Earth.
 
 Do you and your family wish to be happy? Do you wish to understand Life better and live in continuity of mutual security, nourishment, understanding, fulfillment and happiness? Are you struggling anywhere? Are you curious about Lifemaker? *You can ask us anything under Life and Living, Existence and Co-existence.* 
 

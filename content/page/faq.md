@@ -8,20 +8,20 @@ draft: false
 ## About
 
 #### Who are the people involved in this project?
-There are many people who’ve helped/inspired the LifeMaker project and have given an invaluable contribution to its inception. Currently Ayush Ghai and Federico Peccini are helping coordinate the movement. We are joined by a bunch of elders, volunteers and supporters in different roles. 
+There are many people who’ve helped/inspired the LifeMaker project and have given an invaluable contribution to its inception. We are joined by a bunch of elders, volunteers and supporters in different roles. We are getting special help from [Saadho](http://saadhosangha.org) and [Enlightened Family Project](madhyasth-darshan.info) teams.
 
 #### Can I join?
 Everyone is welcome to join. Our tribe welcomes people from any walk of life. Just that we wish you join with your family or community, with whom you live on an intimate basis, so that we are more effective. 
 
 #### How to get in touch?
-You can join our low traffic [mailing list](https://lists.riseup.net/www/subscribe/lifemaker), follow us on [Facebook](https://facebook.com/lifemaker-app), join our [forum](/forum) or come and meet us in person at our [community space](https://www.openstreetmap.org/node/5424351357#map=19/32.19787/76.36606) in the Himalayas or at one of our events (Check the calendar!) We keep making announcements on our social channels and mailing list about latest and greatest updates.
+You can join our low traffic [mailing list](https://lists.riseup.net/www/subscribe/lifemaker), follow us on [Facebook](https://facebook.com/lifemaker-app), join our upcoming [forum](/forum) or come and meet us in person at our [community space](https://www.openstreetmap.org/node/5424351357#map=19/32.19787/76.36606) in the Himalayas or at one of our events (Check the calendar!) We keep making announcements on our social channels and mailing list about latest and greatest updates.
 
 ## The Community
 #### Does LifeMaker have a physical space?
-Our homes and hubs are your space. We are distributed across India and Italy mostly, for now.
+Our homes and hubs are your space. Our first hub is in Dharamsala, Himachal Pradesh, India. We are distributed across India and Italy mostly, for now.
 
 #### How do we gain members? 
-The families (at least one member from a family) have to sign in to our way of living, and go deep with us in an open frame to get on to the same page. It will mostly mean a visit to one of our families or attend our workshops and retreats, before a mutual call is taken. 
+It will mostly mean a visit to one of our families or attending our workshops and retreats. Once we arrive at a common understanding, a mutual call happens.
 
 #### How do I visit/join the community?
 You are welcome to come and stay with us. Reach out to us through contact information on home page and we’ll help you sort out the travel arrangements. 
