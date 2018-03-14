@@ -5,7 +5,7 @@ weight: -270
 ---
 
 ### Healthy, happy and wise human (family), with Earth
-**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, one will naturally act in justful and mutually fulfilling way, as a being of happiness. There will be shared happiness in continuity.**
+**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, Wisdom will follow. One will naturally act in justful way, as a being of happiness. There will be shared happiness and mutual fulfillment in continuity.**
 
 > Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all Life problems in a human centric approach. We are evolving a standard package which can be adopted by any human family, their neighborhood and all Humanity.
 
