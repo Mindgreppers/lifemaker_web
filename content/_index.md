@@ -5,7 +5,7 @@ weight: -270
 ---
 
 ### Healthy, happy and wise human (family), with Earth
-**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, Wisdom will follow. One will naturally act in justful way, as a being of happiness. There will be shared happiness and mutual fulfillment in continuity.**
+**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease, which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, Wisdom will follow.** One will naturally act in justful way, as a being of happiness. There will be shared happiness and mutual fulfillment in continuity.
 
 > Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all Life problems in a human centric approach. We are evolving a standard package which can be adopted by any human family, their neighborhood and all Humanity.
 
@@ -24,7 +24,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
   - Attend one of our introductory workshops of 7 days
   - We will do Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems. 
-  - If understood, it will enable any family and humanity to make every relegion successful and our wise ancestors proud.
+  - If understood, it will enable a family (together - humanity) to make every relegion successful and our wise ancestors proud.
 - **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
   - Identify and serve the *real* needs and spend least on entertainment.
   - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
