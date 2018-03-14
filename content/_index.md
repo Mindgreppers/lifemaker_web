@@ -23,6 +23,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 
 - **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
   - Attend one of our introductory workshops of 7 days
+  - We will do Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems.
 - **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
   - Identify and serve the *real* needs and spend least on entertainment.
   - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
@@ -63,7 +64,6 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 - Meeting and sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
 - Scouting for a base
 - Evolving the family package with help from Lifemaker members, [Madhyastha Darshan - the Enlightened Family](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) teams
-  - Madyastha Darshan is Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems.
 
 ## Participate and contribute
 * First, we should arrive on the same page and share a common understanding.
