@@ -4,16 +4,16 @@ menu: main
 weight: -270
 ---
 
-## Happiness (in continuity)
-**We can all agree that happiness is the ultimate desire behind all human desires.** It comes from understanding and knowing Existence and Co-existence; and living accordingly.
+### Healthy, happy and wise human (family), with Earth
+**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, one will naturally act in justful and mutually fulfilling way, as a being of happiness. There will be shared happiness in continuity.**
 
-> Lifemaker is a movement for holistic good of every Human (family), and all Earth.
+> Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all Life problems in a human centric approach. We are evolving a standard package which can be adopted by any human family, their neighborhood and all Humanity.
 
-As a growing family integrated by the same understanding, we are pooling in our perspectives and resources, to protect and nurture Humanity and Earth, and thrive together in abundance.
+As a growing family integrated by a holistic and same understanding of Life, we are together to protect and nurture Humanity and Earth. We are envisioning how can Humanity thrive together in abundance, along with Nature; as an unfading tradition independent of time.
 
 ## A friendly Lifeline is here for you 
 
-*You can ask us anything. And we shall together explore and investigate.* 
+*Interested? You can ask us anything. And we shall together explore and investigate.* 
 
 No matter what is your question, need or suggestion, we will love to hear from you. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
