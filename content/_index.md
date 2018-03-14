@@ -23,7 +23,8 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 
 - **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
   - Attend one of our introductory workshops of 7 days
-  - We will do Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems.
+  - We will do Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems. 
+  - If understood, it will enable any family and humanity to make every relegion successful and our wise ancestors proud.
 - **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
   - Identify and serve the *real* needs and spend least on entertainment.
   - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
