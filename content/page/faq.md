@@ -1,7 +1,10 @@
 ---
 title: "Faq"
 date: 2018-02-20T12:38:03+05:30
-menu: main
+menu:
+  main:
+	name: FAQ
+    weight: -2
 draft: false 
 ---
 
@@ -35,17 +38,8 @@ You can check out our event calendar and see if there’s an event happening nea
 #### Are the events free?
 The cost of our events, like all of Lifemaker activities, are covered by contribution through members. If someone has a financial limitation, they can approach us and request a free or subsidised entry, in return for volunteer work for the event.
 
-## The Network
-
-#### What are the hubs/spaces connected to LifeMaker?
-These are hubs and community spaces around the world that share the LifeMaker values and support the project in some way. We will start listing them soon.
-
-#### How do I find a LifeMaker hub/space near my home?
-The current list of hubs/spaces in line with our vision and ethos, is visible [here](/hubs).
-On the page you’ll find contact details for each hub/space. Please contact them and ask for availability.
-
-#### How do I connect my hub/space with LifeMaker?
-You can connect your hub/space to the LifeMaker network by agreeing to the [Way of Living charter](https://docs.google.com/document/d/18AtEj2GhpBe9REYUvQ999nMklHZq1RohGEOhM0OhqQ0) and sending an application email to the Core team. We will meet and explore possibilities.
+#### How do I connect my family with LifeMaker?
+You can connect your hub/space/family to the LifeMaker network by spending at least 7 days with us, in an open frame to understand and evolve, what Lifemaker  
 
 ## The Charter
 #### What is the Way of Living?
