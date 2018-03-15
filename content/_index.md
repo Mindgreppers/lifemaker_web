@@ -4,10 +4,12 @@ menu: main
 weight: -270
 ---
 
-### Healthy, happy and wise human (family), with Earth
-**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease, which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, Wisdom will follow.** One will naturally act in justful way, as a being of happiness. There will be shared happiness and mutual fulfillment in continuity.
+### Undivided Humanity. Thriving family. Holistic order. 
+**We can all agree that happiness is the ultimate desire behind all desires and actions.** We live lifetimes, doing things in order to be happy and to know our selves, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Our lack of Understanding and Knowing existence and co-existence in a holistic and objective way, keeps us away from the Source of happiness and ease, which is always present everywhere. We have the power and the choice to break from this repetitive patten. **Once Life is understood in an open frame, Wisdom follows. One becomes a being of happiness, and naturally acts in justful way on a continuous basis**. There is shared happiness and mutual fulfillment in continuity. 
 
-> Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all Life problems in a human centric approach. We are evolving a standard package which can be adopted by any human family, their neighborhood and all Humanity.
+*This is what we wish to achieve as humanity. We wish all human families to be happy, justful and mutually fulfilled. Humanity to be peaceful and benevolent. And all life on Earth to be thriving.*
+
+> Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all personal, social and environmental problems in a human centric approach. We are evolving a standard package which can be adopted by any human family, their neighborhood and all Humanity.
 
 As a growing family integrated by a holistic and same understanding of Life, we are together to protect and nurture Humanity and Earth. We are envisioning how can Humanity thrive together in abundance, along with Nature; as an unfading tradition independent of time.
 
