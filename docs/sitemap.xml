@@ -1,0 +1,105 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
+  xmlns:xhtml="http://www.w3.org/1999/xhtml">
+  
+  <url>
+    <loc>http://www.lifemaker.us/</loc>
+    <lastmod>2018-03-15T18:07:31+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/lifeline/</loc>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/post/background/</loc>
+    <lastmod>2018-03-15T18:07:31+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/values/</loc>
+    <lastmod>2018-03-05T12:55:47+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/forum/</loc>
+    <lastmod>2018-03-05T11:53:55+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/model/</loc>
+    <lastmod>2018-03-04T13:07:18+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/whoami/</loc>
+    <lastmod>2018-02-26T12:20:59+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/members/</loc>
+    <lastmod>2018-02-23T21:24:26+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/economics/</loc>
+    <lastmod>2018-02-23T21:02:43+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/workshops-and-retreats/</loc>
+    <lastmod>2018-02-23T13:51:05+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/teachings/</loc>
+    <lastmod>2018-02-23T12:33:57+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/music/</loc>
+    <lastmod>2018-02-23T12:33:29+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/philosophy/</loc>
+    <lastmod>2018-02-23T12:29:04+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/faq/</loc>
+    <lastmod>2018-02-20T12:38:03+05:30</lastmod>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/authors/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/categories/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/page/</loc>
+    <lastmod>2018-03-05T12:55:47+05:30</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/post/</loc>
+    <lastmod>2018-03-15T18:07:31+05:30</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/tags/</loc>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>http://www.lifemaker.us/reading/</loc>
+  </url>
+  
+</urlset>

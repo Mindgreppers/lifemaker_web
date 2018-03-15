@@ -1,10 +1,7 @@
 ---
 title: "Faq"
 date: 2018-02-20T12:38:03+05:30
-menu:
-  main:
-	name: FAQ
-    weight: -2
+menu: main
 draft: false 
 ---
 
