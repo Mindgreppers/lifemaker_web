@@ -1,0 +1,23 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Posts on Lifemaker</title>
+    <link>http://www.lifemaker.us/post/</link>
+    <description>Recent content in Posts on Lifemaker</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <lastBuildDate>Thu, 15 Mar 2018 18:07:31 +0530</lastBuildDate>
+    
+	<atom:link href="http://www.lifemaker.us/post/index.xml" rel="self" type="application/rss+xml" />
+    
+    
+    <item>
+      <title>Background</title>
+      <link>http://www.lifemaker.us/post/background/</link>
+      <pubDate>Thu, 15 Mar 2018 18:07:31 +0530</pubDate>
+      
+      <guid>http://www.lifemaker.us/post/background/</guid>
+      <description>We can all agree that happiness is the ultimate desire behind all desires and actions. We live lifetimes, doing things in order to be happy and to know our selves, hence feeling happiness in pieces and being in some kind of unease for rest of the time. Not knowing what we need exactly, we keep trying this and that. In process, we have hurt the Earth and each other to a great extent.</description>
+    </item>
+    
+  </channel>
+</rss>
