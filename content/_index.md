@@ -5,14 +5,13 @@ weight: -270
 ---
 
 ### Undivided Humanity. Thriving family. Holistic order. 
-> Lifemaker is an experiment, for all round good and justful co-existence on Earth. We wish unstoppable happiness in continuity for all human beings. We are developing a holistic solution to all personal, social and environmental problems as a team. We believe a family is the building block of society. Hence we are aiming at families and evolving a standard package for their health, nutrition, education & enlightened co-living. This replicable and scalable blueprint can be adopted and verified by families, their neighborhood and all Humanity, all across the world. We are thankful to all relegions, messengers, philosophers, teachers, scientists and social reformers, for their work towards upliftment of humanity. We wish to complete their work for success and make them proud.
+Happiness is what we truly seek behind all our endeavors. It is right between us, but we have kept evading it and look for it elsewhere, in futility. Today, we (and Earth in totality) is neither healthy nor happy. Even food and survival is becoming a bigger challenge with every passing day. The environment is becoming poisonous for both the body and the mind. How can we be truly happy, in continuity? 
 
-## A friendly Lifeline is here for you 
+At Lifemaker, we wish to resolve this crisis, for both, the Human and Humanity. And we believe family is the way to go, because it is the fundamental unit of society. Those of us who feel this way, are evolving and implementing a holistic family based approach in an open frame. The aim is to raise Human consciousness to the levels where happiness is an everlasting tradition for every Human family, in co-existence on Earth. We aim to establish a globally relicable blueprint that solves all the personal, familial, social and environmental issues humanity is facing today.
 
-*Have a question? Facing any personal, familial or social issue? You can ask us or discuss with us anything relevant to Life. We shall together investigate how to solve your challenge.* 
-Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
+We are thankful to all relegions, messengers, philosophers, teachers, scientists, social reformers, our human ancestors and all the benevolent beings, for their work towards upliftment of humanity. We wish to take their work forward to resolution, and make them proud. /|\\
 
-## Our approach
+# Our approach
 
 Our family understands and lives by [a Universal Value System](/values). Our members live to fulfill each other, Humanity and Earth in every meaningful way possible. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living that way.
 
@@ -67,6 +66,11 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   * Speak to us remotely through Lifeline
 * When the understanding will dawn, what is to be done will be known, and will also happen.
 * Tell others who feel the need for a change in their lives right away! Call out to our tribe!
+
+## A friendly Lifeline is here for you 
+
+*Have a question? Facing any personal, familial or social issue? You can ask us or discuss with us anything relevant to Life. We shall together investigate how to solve your challenge.* 
+Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
 ## Call to the tribe
 
