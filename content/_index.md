@@ -5,13 +5,12 @@ weight: -270
 ---
 
 ### Undivided Humanity. Thriving family. Holistic order. 
-> Lifemaker is a collective way of life for Good; in co-existence. It is a holistic solution to all personal, social and environmental problems, in a human (family) centric approach. We are evolving a standard package for families, for education, enlightenment, health and co-living. This replicable and scalable blueprint can be adopted and verified by families, their neighborhood and all Humanity, all across the world. 
+> Lifemaker is an experiment, for all round good and justful co-existence on Earth. We wish unstoppable happiness in continuity for all human beings. We are developing a holistic solution to all personal, social and environmental problems as a team. We believe a family is the building block of society. Hence we are aiming at families and evolving a standard package for their health, nutrition, education & enlightened co-living. This replicable and scalable blueprint can be adopted and verified by families, their neighborhood and all Humanity, all across the world. We are thankful to all relegions, messengers, philosophers, teachers, scientists and social reformers, for their work towards upliftment of humanity. We wish to complete their work for success and make them proud.
 
 ## A friendly Lifeline is here for you 
 
-*Interested? You can ask us anything. And we shall together explore and investigate.* 
-
-No matter what is your question, need or suggestion, we will love to hear from you. Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
+*Have a question? Facing any personal, familial or social issue? You can ask us or discuss with us anything relevant to Life. We shall together investigate how to solve your challenge.* 
+Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
 ## Our approach
 
@@ -23,7 +22,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
   - If understood, it will enable a family (together - humanity) to make every relegion successful and our wise ancestors proud.
 - **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
   - Identify and serve the *real* needs and spend least on entertainment.
-  - Live in a cooperative, complimentary, justful and mutually fulfilling way as a family, with its environment.
+  - Live in a cooperative, complimentary, justful and mutually fulfilling way within the family, and with Earth, Environment and neighborhood.
 - **Prove and replicate a standard model for existential and co-existential [education](/model) and [value based co-living](/values)**
   - In a systematic way
   - The family is the fundamental Unit, instead of individual
