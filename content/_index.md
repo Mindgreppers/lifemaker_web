@@ -9,7 +9,7 @@ Happiness is what we truly seek behind all our endeavors. It is right between us
 
 At Lifemaker, we wish to resolve this crisis, for both, the Human and Humanity. And we believe family is the way to go, because it is the fundamental unit of society. Those of us who feel this way, are evolving and implementing a holistic family based *understanding & approach in an open frame*. The aim is to raise Human (family's) consciousness to the levels where happiness is an everlasting tradition, in co-existence on Earth. We aim to establish a globally relicable blueprint that solves all the personal, familial, social and environmental issues humanity is facing today.
 
-We are thankful to all relegions, messengers, philosophers, teachers, scientists, social reformers, our human ancestors and all the benevolent beings, for their work towards upliftment of humanity. We wish to take their work forward to resolution, and make them proud. /|\\
+We are thankful to all relegions, messengers, philosophers, teachers, scientists, social reformers, our ancestors and all the benevolent beings, for their intentional and unintentional contribution towards human evolution and upliftment. We are going to make them proud; by taking their work to resolution; by establishing an undying tradition of happiness and prosperity for our children, future Humanity and all Earth. May there be peace in every human family and all Earth. /|\\
 
 # Our approach
 
