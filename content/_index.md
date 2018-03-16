@@ -3,13 +3,12 @@ title: Home
 menu: main
 weight: -270
 ---
-
 ### Undivided Humanity. Thriving family. Holistic order. 
 Happiness is what we truly seek behind all our endeavors. It is right between us, but we have kept evading it and look for it elsewhere, in futility. Today, we (and Earth in totality) is neither healthy nor happy. Even food and survival is becoming a bigger challenge with every passing day. The environment is becoming poisonous for both the body and the mind. How can we be truly happy, in continuity? 
 
 At Lifemaker, we wish to resolve this crisis, for both, the Human and Humanity. And we believe family is the way to go, because it is the fundamental unit of society. Those of us who feel this way, are evolving and implementing a holistic family based *understanding & approach in an open frame*. The aim is to raise Human (family's) consciousness to the levels where happiness is an everlasting tradition, in co-existence on Earth. We aim to establish a globally relicable blueprint that solves all the personal, familial, social and environmental issues humanity is facing today.
 
-We are thankful to all relegions, messengers, philosophers, teachers, scientists, social reformers, our ancestors and all the benevolent beings, for their intentional and unintentional contribution towards human evolution and upliftment. We are going to make them proud; by taking their work to resolution; by establishing an undying tradition of happiness and prosperity for our children, future Humanity and all Earth. May there be peace in every human family and all Earth. /|\\
+We are thankful to all relegions, messengers, philosophers, teachers, scientists, social reformers, our ancestors and all the benevolent beings, for their contribution towards human evolution and upliftment. We are going to make them proud; by taking their work to resolution; by establishing an undying tradition of happiness and prosperity for our children, future Humanity and all Earth. May there be peace in every human family and all Earth. /|\\
 
 # Our approach
 
