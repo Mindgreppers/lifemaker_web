@@ -14,8 +14,8 @@ Happiness is what we truly seek behind all our endeavors. It is right between us
 #### We believe family is the way to go 
 because family is the fundamental unit of society, and is also the first place for comfort, security and love. Those of us who feel this way, are evolving and implementing a *holistic, family based understanding & approach to Existence and Co-existence, in an open frame*. 
 
-#### The aim is to raise consciousness 
-to the levels where happiness is an everlasting tradition for every family, in co-existence on Earth. We aim to establish a globally replicable blueprint that solves all the personal, familial, social and environmental issues humanity is facing today.
+### The aim is to raise consciousness 
+to the levels where happiness is an everlasting tradition for every family, in co-existence on Earth. We aim to collectively establish a globally replicable blueprint that solves all the personal, familial, social and environmental issues humanity is facing today.
 
 # Our approach
 
@@ -79,7 +79,7 @@ Our family understands and lives by [a Universal Value System](/values). Our mem
 Reach out to us through [Lifeline service](/lifeline) today! Our forum will be up soon. 
 
 ## We are thankful 
-to all relegions, messengers, philosophers, teachers, scientists, social reformers and all benevolent beings, for their contribution towards human evolution and upliftment. We wish to see their work to completion. May there be peace, happiness and light in every human family and all Earth. /|\\
+to all relegions, messengers, philosophers, teachers, scientists, social reformers and all benevolent beings, for their contribution towards human evolution and upliftment. We wish to see their work to completion. May there be peace, happiness and light in every human family and all Earth, as an unfading tradition. /|\\
 
 ## Call to the tribe
 
