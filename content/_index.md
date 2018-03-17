@@ -18,9 +18,9 @@ A web of families sharing an environment, a blueprint, which infuses safety, nut
 #### We believe family is the way to go 
 because family is the fundamental unit of society, and is also the first place for comfort, security and love. Those of us who feel this way, are evolving and implementing a *holistic, family based understanding & approach to Existence and Co-existence, in an open frame*. Such englightened families connecting together locally and globally, will form a new web for the transcendental Humanity. 
 
-# Our approach
+## Our approach to self-family-social transformation
 
-Our families live by [a way of Life based on a Universal Value System](/values). Our member families live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. Have a look at [the proposed blueprint](/post/approach).
+Our families live by [a way of Life based on a Universal Value System](/values). Our member families live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. Have a look at [the proposed blueprint](/post/approach) for our approach.
 
 ## What's happening?
 - **7 day workshop cum retreat in May and June in Dharamsala, HP, India. You can register as family**
