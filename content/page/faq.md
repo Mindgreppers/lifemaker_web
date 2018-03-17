@@ -52,3 +52,14 @@ We all have some flaws. We all make mistakes and that’s when you’ll find in 
 #### How can I contribute to the Way of Living?
 The Way of Living is an open document and will evolve as our community evolves.  You can contribute by contacting us with your suggestions and inputs.
 
+## History
+#### How old is Lifemaker?
+The name was given in 2015. It is best to consider Lifemaker as never born. The team started gaining strength since last two years.
+
+#### What activities have we done in past?
+Since last few years, few of us were independently thinking on "how to raise Human consciousness and live better in an alternative way". Then we met, and we kept meeting since then. The evolution is still going on as we gain members and perspectives. Our members have been collaborating remotely and meeting for few days to months at stretch. Mostly we have been based in a community space called [Infinity hackerspace](http://www.hackerspaces.org/wiki/infinity) in Dharamsala, HP, India. 
+We have done an android pilot, a i[successful crowdfunding](https://www.ketto.org/fundraiser/lifemaker) for events, app design and graphics, [first official gathering](https://medium.com/lifemaker-blog/foundation-meetup-briefing-648002e226cd) in November 2019. We have been conducting events and also being travelling to share with other people. 
+Initially we were focussing on an online heavy strategy. But we realised we need a ground based strategy, where the understanding of Life and way of Living is demonstrated by few families, for the world to learn from and collaborate physically. Our pilot is being planned near Dharamsala, Himachal Pradesh. We will be starting by sharing the understanding and model, through 7 day workshops, in summer 2018. With the base operations started in the pilot, we will be doing workshops across India and world in coming time. 
+
+#### Is Lifemaker registered as a not-for-profit organisation yet?
+Not yet. It will be done when needed. Till then we are managing as a loosely connected group of people, and gaining core team of people and families committed full time to this project.
