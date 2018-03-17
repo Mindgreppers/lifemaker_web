@@ -4,11 +4,12 @@
   
   <url>
     <loc>http://www.lifemaker.us/</loc>
-    <lastmod>2018-03-15T18:07:31+05:30</lastmod>
+    <lastmod>2018-03-17T16:02:06+05:30</lastmod>
   </url>
   
   <url>
-    <loc>http://www.lifemaker.us/lifeline/</loc>
+    <loc>http://www.lifemaker.us/post/approach/</loc>
+    <lastmod>2018-03-17T16:02:06+05:30</lastmod>
   </url>
   
   <url>
@@ -47,7 +48,7 @@
   </url>
   
   <url>
-    <loc>http://www.lifemaker.us/workshops-and-retreats/</loc>
+    <loc>http://www.lifemaker.us/workshops/</loc>
     <lastmod>2018-02-23T13:51:05+05:30</lastmod>
   </url>
   
@@ -82,6 +83,10 @@
   </url>
   
   <url>
+    <loc>http://www.lifemaker.us/lifeline/</loc>
+  </url>
+  
+  <url>
     <loc>http://www.lifemaker.us/page/</loc>
     <lastmod>2018-03-05T12:55:47+05:30</lastmod>
     <priority>0</priority>
@@ -89,7 +94,7 @@
   
   <url>
     <loc>http://www.lifemaker.us/post/</loc>
-    <lastmod>2018-03-15T18:07:31+05:30</lastmod>
+    <lastmod>2018-03-17T16:02:06+05:30</lastmod>
     <priority>0</priority>
   </url>
   
