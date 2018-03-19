@@ -5,27 +5,33 @@ weight: -270
 ---
 ## Undivided Humanity. Thriving family. Holistic order. 
 ### For continuity of happiness
-Happiness is what we truly seek behind all our endeavors. It is right between us, but disconnected from our Nature, we look for it elsewhere - obviously in futility. Today, we as individuals, families, states, race (and Earth in totality) are neither healthy nor happy. Even food and survival is becoming a bigger challenge with every passing day. The environment is becoming poisonous for both the body and the mind. **While our current system and order has material comforts (for some), we are still missing out on happiness. How can all of us be mutually fulfilled and happy together?** 
+Happiness is what we truly seek behind all our endeavors. It is right between us, but disconnected from our Nature, we look for it elsewhere - obviously in futility. Today, we as individuals, families, states, race (and Earth in totality) are neither healthy nor happy. Even food and survival is becoming a bigger challenge with every passing day. The environment is becoming poisonous for both the body and the mind. While our current system and order has material comforts (for some), we are still not happy. 
 
-> Once we understand Life and the way to Live, it becomes spontaneous to be in mutually fulfilling co-existence; as beings of happiness. 
+**How can all of us be mutually fulfilled and happy together?** 
 
-### What we really need is an enlightening new order
-Personal, familial, social; built on top of the existing order; taking forward learnings from our relegions, saints, philosophers, scientists and ancestors; and applying a timeless, total solution to all our problems.
 
-## At Lifemaker, we are seeking our family of Enlightened Living
-A web of families sharing an environment, a blueprint, which infuses safety, nutrition, holistic living and trascendence in every child, family and their environment. We wish to setup a tradition, where there is continuity of happiness and mutual fulfillment; in co-existence. Every human (family) who wishes to live happier in co-existence, wishes to see the picture in an open frame, is welcome to connect with us or meet us.
+> When the nature of Consciousness/Matter, Existence/Co-existence, Human/Humanity is understood, comes knowledge. From knowledge comes wisdom. From wisdom emerges Rightful Living. The proof of the Life's understanding is reflected in the Living based on mutual fulfillment and continuity of happiness. 
 
-#### We believe family is the way to go 
-because family is the fundamental unit of society, and is also the first place for comfort, security and love. Those of us who feel this way, are evolving and implementing a *holistic, family based understanding & approach to Existence and Co-existence, in an open frame*. Such englightened families connecting together locally and globally, will form a new web for the transcendental Humanity. 
+## We need a social web of transcendental co-existence
+At Lifemaker, we wish to bring humanity together with a shared understanding of Life, and the way to live. *A new order* which solves all our problems and needs - material, mental and spiritual; and paves way for real progress; for every child, person, family & Earth; for Good and for all time to come.
+
+## And we believe family is the way to go 
+By family, we mean *at least two people committed to being together for Life.*
+Family is the fundamental unit of society. Comfort, protection and love are found first and foremost in family. It is the launchpad for leaping in the larger World, and also the landing site of trust and retreat. At Lifemaker we look at it as the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living, Existence and Co-existence.
+
+## We include everyone
+Our families believe that all humanity and Life is One Family. And our [way of Life](/values) is to be inclusive, integral and see everyone with unchanging Love. 
 
 ## Our approach to self-family-social transformation
 
-Our families live by [a way of Life based on a Universal Value System](/values). Our member families live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. Have a look at [the proposed blueprint](/post/approach) for our approach.
+Our families live by [a way of Life based on a Universal Value System](/values). Our member families live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. 
+
+> Have a look at [the proposed blueprint](/post/approach) for our approach.
 
 ## What's happening?
 - **7 day workshop cum retreat in May and June in Dharamsala, HP, India. You can register as family**
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
-  - Evolving the family package with inspiration from our wise members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) 
+  - Evolving the family package with help from [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) 
 - Evolving the [Way of Life](/values) based on Universal Values
 - Online forum setup
 - Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
