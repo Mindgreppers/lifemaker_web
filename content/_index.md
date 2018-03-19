@@ -9,14 +9,15 @@ Happiness is what we truly seek behind all our endeavors. It is right between us
 
 **How can all of us be mutually fulfilled and happy together?** 
 
+> With Understanding and Wisdom 
 
-> When the nature of Consciousness/Matter, Existence/Co-existence, Human/Humanity is understood, comes knowledge. From knowledge comes wisdom. From wisdom emerges Rightful Living. The proof of the Life's understanding is reflected in the Living based on mutual fulfillment and continuity of happiness. 
+When the nature of Consciousness/Matter, Existence/Co-existence, Human/Humanity is understood together, mutual happiness and fulfillment will naturally follow.
 
-## We need a social web of transcendental co-existence
-At Lifemaker, we wish to bring humanity together with a shared understanding of Life, and the way to live. *A new order* which solves all our problems and needs - material, mental and spiritual; and paves way for real progress; for every child, person, family & Earth; for Good and for all time to come.
+## At Lifemaker, we wish to bring humanity together 
+with a shared understanding of Life, and the way to live. *A way of life* which solves all our problems and needs - material, mental and spiritual; and paves way for real progress; for every child, person, family & Earth; for Good and for all time to come.
 
 ## And we believe family is the way to go 
-By family, we mean *at least two people committed to being together for Life.*
+By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.*
 Family is the fundamental unit of society. Comfort, protection and love are found first and foremost in family. It is the launchpad for leaping in the larger World, and also the landing site of trust and retreat. At Lifemaker we look at it as the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living, Existence and Co-existence.
 
 ## We include everyone
