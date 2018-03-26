@@ -9,42 +9,34 @@ draft: false
 We are in discussions as an international group evolving the blueprint.
 Here is the latest status of this document
 
-## Our eight step approach
+## Our approach
 
-- **Meet with an open frame, to understand and See reality (Life, Living, Existence, Co-existence) as-it-is**
-  - Attend one of our introductory workshops of 7 days
-  - We will do Existence based human centric contemplation. It is an alternative to Materialism/Science and Theism/Spiritualism. It equips us with clarity for every dimension of our lives via realization knowledge. It has a resolution to our current personal, familial, social & ecological problems. 
-  - If understood, it will enable a family (together - humanity) to make every relegion successful and our wise ancestors proud.
-- **Once the picture is seen in the open frame, start applying the Wisdom in Living** 
-  - Identify and serve the *real* needs and spend least on entertainment.
-  - Live in a cooperative, complimentary, justful and mutually fulfilling way within the family, and with Earth, Environment and neighborhood.
-- **Prove and replicate a standard model for existential and co-existential [education](/model) and [value based co-living](/values)**
-  - The family is the fundamental Unit, instead of individual
-  - Our package will empower families on health and nutrition, production, exchange, education and enlightenment
-  - The package is aimed to help them live in a mutually fulfilling and justful way; within itself and with its neighborhood
-  - We are kick-starting from villages of Dharamsala, Himachal Pradesh, India. Looking for at least ten local families to opt in, in coming weeks. Once the model kicks in with them, we move forward. 
-- **Live at grassroots as land based ecological communities; in symbiosis with each other and all Nature** 
+- **Understand Life, Living, Existence & Co-existence in an objective way**
+  - We want to understand first, and then work together. Instead of the other way round, as humanity has been doing.
+  - Attend one of our introductory workshops. Let's get on the same page, over few weeks to months.
+  - We will do Existence based human centric contemplation. It will equip us with clarity for every dimension of our life. It is a resolution based understanding of our current personal, familial, social & ecological problems. 
+- **Apply a standard model for [value based co-living](/values) & [family education](/model)**
+  - We will use a family based approach for enlightening and justful co-existence.
+  - A child is a child of all member families
+  - After a family has understood what Life is about and how to live, it may join the Lifemaker family and adopt our way of Life
+  - This model will ensure abundance, wholeseome living and continuity of happiness for member families
+- **Be a decentralised, justful society, organised as locally sustainable ecological communities** 
   - Share and utilise land, water and resources in the right manner
-  - Be as much locally self-reliant as possible
+  - Be in good relationship with each other, with Earth and with mutual fulfillment as every family's Dharma
+  - Produce, share and use justfully, and as locally as possible
+  - Have natural and shared abundance instead of individualistic chase for money and survival
+  - Sustain and produce based on natural farming, eco-businesses/services, living skills and physical work
   - Local families support the need of each other as own
   - Conduct residential programs for immersive co-living, skills and knowledge sharing
   - Member families in cities can also live by the Lifemaker way, in the context of cities.
-- **Have complimentary production, exchange and cooperation at local level**
-  - Emphasise on Natural farming, eco-businesses/services, living skills and physical work
-  - Produce, share and use justfully, and as locally as possible
-  - Sustain each other
 - **Connect and cooperate globally as Enlightened Human family**
   - Support member families for health, nutrition, prosperity and transformation 
+  - Shape local and global policies, system and order for overall benefit of all humanity and Life on Earth
   - Fund travel expenses for learning or teaching; sustainable infrastructure development
   - Develop tools and means for remote collaboration
   - Heal ourselves and all Earth; conserve resources and use rightfully
-- **Keep learning and evolving** 
-  - Have regular community gatherings to discuss on Life and current state of affairs in Living
-  - Use online forum for remote sharing and collaboration.
-  - Provide facility for internet access and remote communication
+- **Online plus offline** 
+  - Shared facility for internet access and remote communication
+  - Have local community gatherings to discuss on Life and current state of affairs in Living
+  - Use online forum for global sharing and collaboration.
   - Have workshops, programs and events for exposure, skills and knowledge
-- **Create a timeless tradition which** 
-  - Is proven to ensure continuous happiness and mutual fulfillment for Human society and Earth
-  - Is holistic, integral, rational and open
-  - Works as a justful and wise system and order.
-  - Give every new born child a nurturing environment of happiness in justful co-existence, for as long as humanity lasts (Hopefully much more than a hundred years as some say). 
