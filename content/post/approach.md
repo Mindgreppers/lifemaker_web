@@ -6,7 +6,7 @@ draft: false
 ---
 
 
-We are in discussions as an international group evolving the blueprint.
+We are in discussions as an international group evolving the blueprint. We wish to evolve a new System and Order for enlightened living.
 Here is the latest status of this document
 
 ## Our approach

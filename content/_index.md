@@ -3,13 +3,13 @@ title: Home
 menu: main
 weight: -270
 ---
-## A holistic order for continuity of happiness
-Happiness is what we truly seek behind all our endeavors. While our current system and order has material comforts (for some), we are still not happy. So how can we be truly happy? 
+## Enlightened Human Family, in continuity of happiness
+We can all agree that happiness is our deepest desire. While our current power driven system promises us material comforts, it is lop sided and can not make us happy. We can see the proof of this all across the Earth, in all facets of our co-existence. If we continue this way, we will face tougher times ahead, perhaps leading to our extinction very soon. *The essence of Life is happiness, and it is always available to every Human. We only fail to recognise it, looking for it elsewhere, everywhere, in futility.*
 
-> We can be truly happy in tradition, by understanding Life, and living with Wisdom 
+> Once we recognise our real need being continuity of happiness, and realise that it can exist only in mutualness, we will have taken a BIG STEP towards human evolution. **There will emerge a System and Order based on mutual fulfilment and continuity of happiness**. By bringing our attention to the fact that **we all are found together in Existence**, and realising it, we will live happily and mutually fulfilled. This will be an everlasting human tradition on Earth. 
 
 ### At Lifemaker, we wish to bring humanity together 
-with a shared understanding of Life and the way to live together. *A system and order* which solves all our problems and needs - material, mental and spiritual; and ensures mutual fulfillment in continuity; for every child, person, family & Earth; for Good and for all time to come.
+with a shared understanding of Life and the way to live. We wish to establish *a system and order* which solves all our problems and needs - material, mental and spiritual; and ensures mutual fulfillment in continuity; for every child, person, family & Earth; for Good and for all time to come.
 
 ### And we believe family is the way to go 
 By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.*
@@ -17,11 +17,12 @@ At Lifemaker we look at family as the fundamental social unit for mutual wellbei
 
 ### Our approach to self-family-social transformation
 
-Our families live by a way of Life [based on a Universal Value System](/values) and [a systematic approach](/post/approach). Our member families live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. 
+Our families live by [a Universal Value based Way of Life](/values) and [a system and order based approach](/post/approach). We live by fulfilling each other cooperatively and complimentarily. We welcome families, couples (and occasionally individuals) from any background, given they are indeed curious to understand reality as-it-is and ready to commit to living and growing with us that way. 
 
 > Have a look at [the proposed blueprint](/post/approach) for our approach.
 
 ## What's happening?
+- Our members took time to understand Life in an objective way. Now we are gathering steam and sharing the same with the larger world.
 - **7 day workshop in English and Hindi - June 1 - 15th in Dharamsala, HP, India. Coordinators: Pavitar Chaudhary, Bhawesh Asgar & Ayush Ghai. Contact us to register as family**
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
   - Evolving the family package with help from [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) 
