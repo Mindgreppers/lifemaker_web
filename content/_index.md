@@ -3,13 +3,14 @@ title: Home
 menu: main
 weight: -270
 ---
-### System and order for mutual happiness and wellbeing
-We have all kind of material comforts in today's system, yet we are not happy. Why?
+### A Human order for mutual happiness and wellbeing
+Why is Human and Humanity not at peace or happy today? Those with wealth & power, and those without - they are all unhappy. Why is living becoming more and more unsustainable and strensuous? Why is there conflict all around - in Self, family, Humanity and with Nature too? Humans have been enlightened occasionally throughout history, but their teachings are individualistic, and are not helping us be enlightened as a collective. Can there be a System and Order where every family and child gets a fertile environment for nurture, happiness and enlightenment? **How can there be happiness in continuity, and as a timeless Human tradition?** 
 
-> From the current system run by power, needs to emerge a System and Order based on mutual fulfilment and continuity of happiness. We all are found together on Earth. Only and only by realising this fact, can Humanity live safely, happily and mutually fulfilled; in prosperity with rest of planet Earth.
+> Solution: Mutual understanding of Life as-it-is; Self realisation and happiness in families; An appropriate model and way of Living 
 
-### At Lifemaker, we wish to bring humanity together 
-with a shared understanding of Life and the way to live. We wish to establish *a system and order* which solves all our problems and needs - material, mental and spiritual; and ensures mutual fulfillment in continuity; for every child, person, family & Earth; for Good and for all time to come.
+### At Lifemaker, we envision a Holistic working model based on which Humanity can co-exist in a mutually fulfilling and happy manner, in balance with nature; as an undying Human tradition. 
+
+We wish to establish *a system and order*, via a culture of mutual co-operation and family based approach, which solves all our problems and needs - material, mental and spiritual; and ensures mutual fulfillment in continuity; for every child, person, family & Earth; for Good and for all time to come.
 
 ### And we believe family is the way to go 
 By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.*
@@ -23,14 +24,14 @@ Our families live by [a shared Way of Life](/values) and [a system and order bas
 
 ## What's happening?
 - Our members took time to understand Life in an objective way. Now we are gathering steam and sharing the same with the larger world.
-- **5 day workshop in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Coordinators: Pavitar Chaudhary, Bhawesh Asgar & Ayush Ghai. Contact us to register as family**
+- **5 day workshop in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family**
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
   - Evolving the family package with insights from [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) 
 - Evolving the [Way of Life](/values) based on Universal Values
-- Online forum setup with help from Sumukh Shetty
+- Online forum setup
 - Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
   - Establishing a base with them, in an eco setup
-- Website and content by Ayush Ghai, Federico Pecchini and other team members
+- Website and content
 
 ## Participate and contribute
 * First, let us arrive on the same page and share a common understanding.
