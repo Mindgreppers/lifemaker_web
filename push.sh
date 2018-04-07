@@ -6,6 +6,8 @@ rm -r docs
 
 mv public docs
 
+cp google2bf9664a4c4b846e.html docs/
+
 git add -A
 
 if [ ! -z $1 ];
