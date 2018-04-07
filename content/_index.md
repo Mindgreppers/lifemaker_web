@@ -3,8 +3,8 @@ title: Home
 menu: main
 weight: -270
 ---
-##An undivided Humanity
-###A Human order for mutual happiness and wellbeing
+## An undivided Humanity
+### A Human order for mutual happiness and wellbeing
 Why is Human and Humanity not at peace or happy today? Those with wealth & power, and those without - they are all unhappy. Why is living becoming more and more unsustainable and strensuous? Why is there conflict all around - in Self, family, Humanity and with Nature too? Humans have been enlightened occasionally throughout history, but their teachings have been for the individual. So far Humanity has not been presented with a Holistic System and Order where every family and child gets a fertile environment for nurture, happiness and enlightenment. **How can there be happiness in continuity, and as a timeless Human tradition?** 
 
 > Time has come to take our ancestors work forward. To grow together, from individuals to Family. Time has come to build a mutual understanding of Life as-it-is; to help each other be nurtured, fulfilled and happy; to be a Universal Family of enlightened families, in a peaceful play of Existence with Co-existence.
