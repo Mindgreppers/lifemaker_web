@@ -3,24 +3,25 @@ title: Home
 menu: main
 weight: -270
 ---
-### A Holistic Human order for mutual happiness and wellbeing
+### A Holistic Human order and tradition for mutual fulfilment and happiness in continuity
 
-Human's true nature is Happiness, but we are not peaceful or happy today. Most are caught in a blind race or rage, expecting happiness from actions, not knowing that Happiness is available equally to everyone by default. We divide, compare and compete, not realising that we are all found together; same and similar; in co-existence. 
+Happiness is Human's true nature, and is also the deepest desire when we can't feel it. Most of us are caught in a blind race or rage, expecting happiness from actions or objects, not knowing that Happiness is available equally to everyone by default. We have not realised *that we are all found together; same and similar; on this Earth; in Co-existence.* Not attentive to the fact that in co-existence everything is connected as an indivisible whole; we divide, compare, compete and fight, as if the misery of others doesn't affect us, or will rather give us some benefit. In reality, there is no Holistic gain at other's loss. We play power games and are ruled by power. We have not (socially) realised the natural way of Life, in which all of us can co-exist peacefully and mutually fulfilled. The families are breaking. Human body or consciousness is not in a healthy state. Humanity is facing an imminent extinction. The message is clear - "Learn or Burn". And we don't have much time. **Lifemaker is an invitation to Humanity to learn and cooperate starting NOW, so that human seed continues to thrive in an timeless tradition of enlightenment, justful living and happiness in continuity.**
 
-> The previous big leap in Human evolution was in materialism and science. The next leap is in Consciousness; reflected as a [Universal Value](/values) based System and Order.
+> The previous big leap in Human evolution was in Materialism and Science. The next leap is in Consciousness; reflected as a [Universal Value](/values) based System and Order.
 
 ### How can we be happy, prosperous and enlightened together? 
 
-> Have a look at [the proposed blueprint](/post/approach)
+> Have a look at [the proposed approach](/post/approach)
 
 *We believe family is the way to go. And the change starts with yours.*
 
-By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.* Family is the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living, Existence and Co-existence. A family is the basic unit of an integrated human society.
+By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.* Family is the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living, Existence and Co-existence. *A family is the basic unit of an integrated human society.*
 
 We welcome curious families, couples (and also individuals) from any background to spend time and collaborate with us in India, or on the [online Ashram](http://www.ashram.lifemaker.us).
 
 
 ## What's happening?
+- Online social network and forum setup
 - Youth workshops in Dharamsala area, in May
 - 5 day workshop in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
@@ -29,8 +30,7 @@ We welcome curious families, couples (and also individuals) from any background 
 - Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
 - Establishing a base in Dharamsala, in an eco setup with member families
 - Website and content
-- Online forum setup
-- Registering a Trust or Society in India, by July
+- Registering a Trust or Society in India
 
 ## Participate and contribute
 * First, let us arrive on the same page and share a common understanding.

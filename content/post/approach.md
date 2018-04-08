@@ -9,7 +9,9 @@ draft: false
 
 *When enough streams will join together, the river will be large enough to reach the ocean.*
 
-We are in discussions as an international group evolving the blueprint. We wish to evolve a new System and Order for enlightened living. Our on ground pilot is happening in Dharamsala area. 
+*Humanity has arrived at a System which is opposite to how nature works. No wonder there is misery all around. From here needs to emerge a natural System and Order.*
+
+We are in discussions as an international group of philosophers, social activists and reformers, common people and enlightened beings. We wish to evolve a new System and Order for enlightened living. Our on ground pilot is happening in Dharamsala area. 
 
 Here is the latest status of this document
 
@@ -19,20 +21,21 @@ Here is the latest status of this document
   - We will do Existence based human centric contemplation. It will equip us with clarity for every dimension of our life. It is a resolution based understanding of our current personal, familial, social & ecological problems. 
   - We are drawing inspiration from [Co-existentialism](http://www.madhyastha-darshan.info) and all old philosophical traditions, relegions and spiritual teachings.
   - Understand the working, conceptual and operational model for Universal Value based Living and Human Order
-- **Apply the working, conceptual and operational models**
-  - Working model is [Universal Values based Living](/values)  
+- **Apply the conceptual, working and operational models**
   - Conceptual model is about understanding the nature of Life, Existence & Co-existence
+  - Working model is [Universal Values based Living](/values)  
   - Physical or operational model covers production, exchange, conservation and right utilisation of resources
-  - Families will join the local and global Lifemaker family, by going through Family education program and adopting the Value based living.
+  - Families will join the local and global Lifemaker family, by going through [Family education program](/model) and adopting the Value based living.
   - We are documenting these models currently
 - **Be a decentralised, justful society, organised as locally sustainable ecological communities** 
-  - Local and remote families will help fulfill each other's real needs
+  - We are focusing on families in our approach.
+  - Local (else remote) families will fulfill each other's real needs
   - We will sustain and produce based on natural farming, eco-businesses/services, living skills and physical work
-  - Co-own, share and utilise land, water, resources and infrastructure in the right manner
+  - We will co-own, share and utilise land, water, resources and infrastructure in the right manner
   - Conduct residential programs for immersive co-living, skills and knowledge sharing
   - Member families in cities can visit, to learn and live by the Lifemaker way, in the context of cities.
 - **Connect and cooperate globally as Enlightened Human family**
-  - Use online forum (Ashram) and other online resources for getting help, helping, sharing and collaborating remotely.
+  - Use online social network (Ashram) and other online resources for getting help, helping, sharing and collaborating remotely.
   - Member families will support each other for health, safety and education.
   - Shape local and global policies, system and order for overall benefit of Lifemaker network, all humanity and all Life on Earth
   - Fund travel expenses for necessary learning or teaching; sustainable infrastructure development
