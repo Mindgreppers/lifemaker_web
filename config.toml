@@ -22,8 +22,8 @@ pygmentsCodefences = true
 defaultContentLanguage = "en"
 
 [params.info]
-description = "Humanity for nurture, happiness & enlightenment; in co-existence."
-title404 = "Nothing's here!"
+description = "Enlightened Human family."
+title404 = "Nothing's here! Why don't you come back to Home?"
 
 [params.assets]
 favicon = "images/favicon.ico"

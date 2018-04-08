@@ -13,7 +13,7 @@ draft: false
 #### We will do the best we can, for you
 * Explore solutions for any problem you are facing
 * Curious to explore an objective understanding of Existence and Co-existence as-it-is; and the solution to all our problems.
-* Our group and their friends are experts in the areas of Self discovery, Self help, health, nutrition, holistic fitness, philosophy, meditation, enlightenment, happiness, relationships, leadership, entrepreneurship, communities, success, natural living, (low cost) travel, holistic education, skill-based empowerment, sustainability, permaculture and gardening, technology, internet, society, animals, environment etc.
+* Our group and their friends are experienced in the areas of Self discovery, Self help, philosophy, meditation, enlightenment & happiness, relationships, health, nutrition, holistic fitness, leadership, entrepreneurship, communities, success, natural living, (low cost) travel, holistic education, skill-based empowerment, sustainability, permaculture and gardening, technology, internet, society, animal care, environment etc.
 
 *We are happy to be useful in any way, not just limited to the areas mentioned above. We are open minded and we discuss and contemplate in an open frame. So you’re welcome to ask us just about anything!*
 
