@@ -5,25 +5,31 @@ weight: -270
 ---
 ### A Holistic Human order and tradition for mutual fulfilment and happiness in continuity
 
-Happiness is our true nature. Most of us are caught in a blind race or rage, desiring happiness from actions or objects, not knowing that it is available to everyone all the time. We have not realised *that we are all found together; same and similar; on this Earth; in Co-existence.* Not attentive to the fact that in co-existence everything is connected as an indivisible whole; we divide, compare, compete and fight, as if the loss of others or environment doesn't affect us, or will rather give us some benefit. In reality, there is no Holistic gain at other's loss. We play power games and are ruled by power. We have not (collectively) realised the spontaneously happy nature of Life, in which all of us can co-exist peacefully and mutually fulfilled. Our families are breaking. Human body or consciousness is not in a healthy state. Humanity is facing an imminent extinction. The message is clear - "Learn or Burn". And we don't have much time. **Lifemaker is an invitation to Humanity to learn and cooperate starting NOW, so that human seed continues to thrive in an timeless tradition of enlightenment, justful living and happiness in continuity.**
+**Happiness is our true nature.** All prophets, relegions and philosophers have spoken the same. **And yet Humanity has evaded the light of reality somehow.** Most of us are caught in a blind rush, desiring happiness from actions or objects, not knowing that it is available to everyone all the time. We are doing things in order to be happy, and not as beings of happiness. 
+
+**Not attentive to the fact that in co-existence everything is connected as an indivisible whole, we feel separate.** We divide, compare, compete and fight. We dream the impossible - to gain happiness at the loss of other or the environment. Our current social order works by individualism and power, instead of Human, Social, Universal or Material values. **Our society and education prepares us to be sullen, selfish and overpowering machines, instead of spontaneously joyous and compassionate Humans.** The food we eat is poisonous. The news on TV is stressing or depressing. Our body or consciousness is not in a healthy state. Money or no money, *our families are breaking and individualism is sucking the joy and abundance out of life.* We are yet to realise what is meant to be a Human.
+
+We are yet to learn that **we are all found together; same and similar; on this Earth; as inseparable parts of Co-existence. So we can be truly happy only when our family, neighborhood, society and Co-existence is healthy and happy.** Given that Humanity is not happy and is facing war, misery, mass exodus and extinction, the message to us is loud and clear - "Learn or Burn". And we don't have much time left to consider the options. 
+
+**Lifemaker is an invitation to Humanity to learn and cooperate starting NOW, so that human seed continues to thrive in an timeless tradition of enlightenment, justful living and happiness in continuity. We are positive about the Human prospect, and we believe we have a complete solution to all human needs.**
 
 > The previous big leap in Human evolution was in Materialism and Science. The next leap is in Consciousness; reflected as a [Universal Value](/values) based System and Order.
 
-### How can we be happy, prosperous and enlightened together? 
+### So what is Lifemaker's strategy? 
 
 > Have a look at [the proposed approach](/post/approach)
 
-*We believe family is the way to go. And the change starts with yours.*
+**Our network will operate both online, and on ground. We will go by a [family based education](/model) approach to enlightened society. We will live by Universal Value System. We will implement conceptual, working and operating models that befit the goal of Undivided Humanity and Holistic System and Order.**
 
-By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.* Family is the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living, Existence and Co-existence. *A family is the basic unit of an integrated human society.*
+We welcome curious families, couples (and also individuals) from any background to spend time with us in India to understand Life, Existence and Co-existence; and then join us on ground from wherever they are. **We are also hosting an online social network for distance sharing and cooperation. It is being called [the Ashram](http://www.ashram.lifemaker.us).** This forum is open to everyone, and is a place for mutual help, life advice and discussions on body and consciousness, philosophy of Existence and Co-existence, family education, Value based living, Lifemaker itself and more such topics.  
 
-We welcome curious families, couples (and also individuals) from any background to spend time and collaborate with us in India, or on the [online Ashram](http://www.ashram.lifemaker.us).
-
+**We believe [family education](/model) is the way to go.**
+By family, we mean *at least two people committed to being together for Life, and growing with mutual fulfillment.* Family is the fundamental social unit for mutual wellbeing; and safe and comfortable space for collective discussions, study, contemplation and meditation upon Life and Living. **An integrated, enlightened and healthy family is the basic unit for an integrated, enlightened and healthy human society.**
 
 ## What's happening?
+- Counselling for young families and singles in Dharamsala area, in May
+- 5 day workshops and seminars in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family
 - Online social network and forum setup
-- Youth workshops in Dharamsala area, in May
-- 5 day workshop in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
   - Evolving the family package with insights from our members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) communities 
 - Evolving the [Way of Life](/values) based on Universal Values
