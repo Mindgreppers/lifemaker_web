@@ -3,23 +3,23 @@ title: Home
 menu: main
 weight: -270
 ---
-### Human network dedicated to understanding Life and living in conscious co-existence with each other and Nature; via mutual help and complimentary cooperation.
+## Humanity coming together to develop a shared understanding of Human, Life & Existence, and to establish and live by an Order of mutual fulfilment and happiness in continuity
 
-> Have a look at [the proposed approach](/post/approach)
+> Have a look at [the proposed approach](/post/approach). The centerpoint of our approach is global cooperation and family based education.
 
-We welcome curious families and individuals from any background to spend time with us in India to understand Life, Existence and Co-existence; and join our network from their homes, farms and community spaces. 
+**Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May. At least two people from every family must come. We welcome curious individuals too, but families are preferred.**
 
-We are also hosting an online social network for distance sharing and cooperation. It is being called [the Ashram](http://www.ashram.lifemaker.us) and will be up soon. This forum is open to everyone, and is a place for mutual help, life advice, evolution of Lifemaker and discussions on body and consciousness, Human and Humanity, Existence and Co-existence, family education, Universal Values and more such topics.  
+THE Big Change we all need can come only after we understand Life, Existence and Co-existence together and objectively. We welcome curious families and individuals from any background to meet us to understand Life, Existence and Co-existence & the need of Human and Humanity; and thereby to join our network from their homes, farms and community spaces. While we welcome you to our base, you can also invite us to meet your family, friends and community; or be part of this movement starting from our online forum called Ashram. 
+
+We are hosting an online social network for remote help, coordination and cooperation. It is being called the Ashram and will be up soon. This forum is open to everyone, and is a place of trust, for mutual help, life advice, discussions on health, sustainability, permaculture, body and consciousness, Human and Humanity, Existence and Co-existence, family, conceptual model (Education), operating model (Production and Exchange), working model (Universal Values), Lifemaker and more such topics.  
 
 Our on ground pilot is based in Dharamsala, Himachal Pradesh, India. We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. 
-
-We are documenting the [Universal Values](/values) to live by, and also the working, conceptual and operational models for Humanity. 
 
 *We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, the movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
 
 ## What's happening?
-- Counselling for young families and singles in Dharamsala area, in May
-- Workshops in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family
+- **Counselling for young families and singles in Dharamsala area, in May**
+- **Workshops in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family by 15th May**
 - Online social network and forum setup
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
   - With insights from our members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) communities 
@@ -40,7 +40,7 @@ We are documenting the [Universal Values](/values) to live by, and also the work
 
 ## We provide a friendly Lifeline
 
-*Facing any personal, familial or social question or challenge in Life? Curious about Lifemaker? Have anything to share? You can ask us any question or share with us anything.* 
+*Facing any personal, familial or social question, problem or challenge in Life? Curious about Lifemaker? Have anything to share? You can ask us any question or share with us anything.* 
 Reach out to our [Lifeline](/lifeline) today! The Ashram forum will be up soon. 
 
 ## We are thankful 

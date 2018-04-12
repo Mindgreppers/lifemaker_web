@@ -2,11 +2,15 @@
 
 hugo
 
-rm -r docs
+mv docs temp
 
 mv public docs
 
+mv temp/CNAME docs/CNAME
+
 cp google2bf9664a4c4b846e.html docs/
+
+rm -rf temp
 
 git add -A
 
