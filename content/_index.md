@@ -3,19 +3,28 @@ title: Home
 menu: main
 weight: -270
 ---
-## Humanity coming together to develop a shared understanding of Human, Life & Existence, and to establish and live by an Order of mutual fulfilment and happiness in continuity
+## Humanity coming together to develop a shared understanding of Human, Life, Existence and Co-existence; and Living together with mutual fulfilment and happiness
 
-> Have a look at [the proposed approach](/post/approach). Our approach is objective, integral and holistic. The centerpoint is Family Education where entire family learns about nature of Self, Life and Universal Values. Every such Enlightened Family -the unit of Society - shares the goal for mutual wellbeing and sustainability in Co-existence. It takes care of itself and also its neighbours, Environment and entire Earth in meaningful ways. By enlightening one family at a time (and inspiring the rest from their behavior in living), we wish to see Human evolution reach the final stage of its development - *Fully realised consciousness and bliss in continuity*.
+Many > Sequence > Arrange > Pattern > Order > System and Order
 
-**Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May. At least two people from every family must come. We welcome curious individuals too, but families are preferred.**
+> Humanity is not happy and faces a grim future. We need a positive and sustainable change. Know more on [Why we need a change](/post/background) and [how to go about it](/post/approach). Lifemaker's solution for Humanity is objective, integral and holistic, covering all aspects of Life - from material to consciousness; and is understandable for any Human, from any background. Our way to spread the understanding is through families, though we welcome curious individuals too. When a Family - the unit of Society - is enlightened upon nature of Self, and Existence as Co-existence, there is mutual wellbeing and sustainability in co-existence. In our model, every family will be empowered and supported via a Value based Social Order, to take care of itself and its neighbours, Environment and Earth in wise ways. It will inspire its neighbors based on its happiness and Value based behavior in co-existence. **We wish to see Human evolution reach the final stage of its development - Fully realised Human consciousness in Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth.
 
-We invite curious families and individuals from any background to understand Life, Existence and Co-existence & Human needs. We welcome every curious and compassionate person and family, to join our network from their homes, farms and community spaces; both online and offline. While we welcome you to our base, you can also invite us to meet your family, friends and community; or be part of this movement starting from our online forum called Ashram. 
+**Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May.** At least two people from every family or friends, must come together. We welcome curious individuals too. But at least two visitors are preferred because when two share the same understanding, the evolution is much faster, and the capability of bringing a change is greater. Age no bar. Children especially welcome.
 
-We are hosting an online social network for remote help, coordination and cooperation. It is being called the Ashram and will be up soon. This forum is open to everyone, and is a place of trust, for mutual help, life advice, discussions on health, sustainability, permaculture, body and consciousness, Human and Humanity, Existence and Co-existence, family, conceptual model (Education), operating model (Production and Exchange), working model (Universal Values), Lifemaker and more such topics.  
+**Our on ground pilot is based in Dharamsala, Himachal Pradesh, India.** We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. We are in process of talks with some village families to get some land for running our program in parternship. 
 
-Our on ground pilot is based in Dharamsala, Himachal Pradesh, India. We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. 
+**Our online social network will be live soon. It will be a platform for Humanity to connect, cooperate and collaborate with each other for**
 
-*We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, this can not be the work of a handful. The movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
+* Mutual help 
+* Life advice
+* Sustainability and harmony
+* Knowledge and Wisdom
+* Family Education - Objective understanding of Self in Reality & how to live mutually fulfilled in co-existence 
+* Operating model (Sustainable production, Exchange, Economics and mutual support), 
+* Value based living
+* More such topics.  
+
+*We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, this has to be a collective effort of everyone. The movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
 
 ## What's happening?
 - **Counselling for young families and singles in Dharamsala area, in May**
@@ -49,6 +58,5 @@ to all relegions, messengers, philosophers, teachers, scientists, social reforme
 ## Call to the tribe
 
 Every human is seeking happiness, mostly externally. Happiness can only be found when in sync with own true nature. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, we can form a large river, which surely will reach the ocean of Consciousness; and there will be mutual wellbeing and happiness all along the way.
-
 
 {{< youtube d_nsFjSuMUU >}}
