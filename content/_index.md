@@ -3,7 +3,7 @@ title: Home
 menu: main
 weight: -270
 ---
-## Understanding Human, Life, Existence and Co-existence. Living together in mutual fulfilment and happiness
+## Shared understanding of Human, Life, Existence and Co-existence. Humanity in mutual fulfilment and happiness. For good and forever.
 
 *Many > Sequence > Arrange > Pattern > System > System and Order*
 
