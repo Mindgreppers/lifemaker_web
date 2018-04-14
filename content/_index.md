@@ -37,14 +37,19 @@ weight: -270
 - Website and content
 - Registering a Trust or Society in India
 
-## Participate and contribute
-* First, let us arrive on the same page and share a common understanding.
-  * We invite the curious families to come for one of our [workshops](/workshops-and-retreats/) with family (at least two people, together for life)
-  * Speak to us remotely through Lifeline
-* When the understanding will dawn, what is to be done will be known, and will also happen.
-* Tell others who feel the need for a change in their lives right away! Call out to our tribe!
-* [Invest with funds.](/invest)
-* Help in any way.
+## We need a team 
+* We need teachers who are living the Lifemaker way. 
+  * First, let us understand ourselves and arrive on the same page.
+  * We invite the curious ones to come for one of our [workshops](/workshops-and-retreats/) with family (at least two people, together for life)
+* [Invest with funds or help raise investment.](/invest)
+* We need help with copywriting and video shoots/editing
+* We need experts in psychology, economics, sociology, education fields
+* We need volunteers on ground
+* We need invitations for events in different cities
+* We need ideas. We need help in all ways possible.
+* We need IT and design related help too.
+
+We are grateful for all the people who have been helping us in different capacity. 
 
 ## We provide a friendly Lifeline
 
