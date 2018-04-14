@@ -19,7 +19,7 @@ draft: false
 
 ## Our team
 
-All of our member families are personally known and vetted before being included as Lifemakers. We ensure that we take time to get on the same page, w.r.t Life, Existence and Co-existence so that we all share same understanding of Life. We’ll make sure to get you connected with the best possible fit for your need - maybe a family which lives close to you, or an expert from far who can speak remotely.  
+All of our experts are personally known and vetted before being included as Lifemakers. We ensure that we take time to get on the same page, w.r.t Life, Existence and Co-existence so that we all share same understanding of Life. We’ll make sure to get you connected with the best possible fit for your need - maybe a family which lives close to you, or an expert from far who can speak remotely.  
 
 Since this is a community based initiative, and still in initial stage, allow us some time to respond. You will surely hear back from us. If you are an expert in any domain, you are welcome to let us know and we will keep in mind. Do keep a watch on the online forum, where you can share your best gifts with the rest of the world.
 
