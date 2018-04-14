@@ -30,7 +30,7 @@ Here is the latest status of this document
   - Working model covers [Value based Living](/values)  
   - Physical or operational model covers economics, health, food, environment, production, exchange, conservation, right utilisation of resources and more such things as have to do with physicality of existence
   - These will extend existing socio-economic-political System which provides merely a promise of abundance and wellbeing, but is inherently not capable of doing so.
-- **Be a decentralised, equalitarian, global society, organised as locally sustainable ecological communities** 
+- **Be a decentralised, sameness based global society, organised as locally sustainable ecological communities** 
   - The network will support each family and child, in living justfully and happy. No one has to struggle alone, or shall be treated that way. 
   - We will sustain and produce based on natural farming, eco-businesses/services, living skills and physical work
   - We will be as decentralised as possible. 
