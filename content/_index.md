@@ -3,24 +3,23 @@ title: Home
 menu: main
 weight: -270
 ---
-## Humanity coming together to develop a shared understanding of Human, Life, Existence and Co-existence; and Living together with mutual fulfilment and happiness
+## Understanding Human, Life, Existence and Co-existence. Living together in mutual fulfilment and happiness
 
-Many > Sequence > Arrange > Pattern > Order > System and Order
+*Many > Sequence > Arrange > Pattern > System > System and Order*
 
-> Humanity is not happy and faces a grim future. We need a positive and sustainable change. Know more on [Why we need a change](/post/background) and [how to go about it](/post/approach). Lifemaker's solution for Humanity is objective, integral and holistic, covering all aspects of Life - from material to consciousness; and is understandable for any Human, from any background. Our way to spread the understanding is through families, though we welcome curious individuals too. When a Family - the unit of Society - is enlightened upon nature of Self, and Existence as Co-existence, there is mutual wellbeing and sustainability in co-existence. In our model, every family will be empowered and supported via a Value based Social Order, to take care of itself and its neighbours, Environment and Earth in wise ways. It will inspire its neighbors based on its happiness and Value based behavior in co-existence. **We wish to see Human evolution reach the final stage of its development - Fully realised Human consciousness in Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth.
+> **Humanity is not happy and faces a grim and unsustainable future. We need a positive and sustainable change.** Read more on [why we need a change](/post/background) and [Lifemaker's approach to manifest it](/post/approach). Lifemaker's solution for Humanity is objective, integral and holistic, covering all aspects of Life - from material to consciousness; and is meant to be understandable and agreeable for any family from any background. Our way to spread the understanding is through families, though we welcome curious individuals too. **We want things to be the way they should be.** Every family will be empowered and supported via Life Education and Value based Social Order. It will take care of itself, its Environment and Earth in wise ways. It will inspire its neighbors based on its happiness and Value based behavior in co-existence. **We wish to see Human evolution reach the final stage of its development - Fully realised Human consciousness in Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth.
 
 **Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May.** At least two people from every family or friends, must come together. We welcome curious individuals too. But at least two visitors are preferred because when two share the same understanding, the evolution is much faster, and the capability of bringing a change is greater. Age no bar. Children especially welcome.
 
 **Our on ground pilot is based in Dharamsala, Himachal Pradesh, India.** We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. We are in process of talks with some village families to get some land for running our program in parternship. 
 
-**Our online social network will be live soon. It will be a platform for Humanity to connect, cooperate and collaborate with each other for**
+**Our online social network will be live soon. It is meant to help people connect, cooperate and collaborate with each other from their homes, farms and community spaces, in the following ways**
 
 * Mutual help 
 * Life advice
 * Sustainability and harmony
-* Knowledge and Wisdom
-* Family Education - Objective understanding of Self in Reality & how to live mutually fulfilled in co-existence 
-* Operating model (Sustainable production, Exchange, Economics and mutual support), 
+* Sharing knowledge, understanding and wisdom 
+* Develop the Operating model (Sustainable production, Exchange, Economics, Organisation, Decision Making and mutual support)
 * Value based living
 * More such topics.  
 

@@ -18,27 +18,28 @@ Here is the latest status of this document
 
 ## Our approach
 
+- **Treat family as the unit of society and basis for perpetuating Human seed and realisation**
+  - Enlightened families in peaceful and justful co-existence, is healthy and happy Humanity in continuity
 - **Understand Life, Living, Existence & Co-existence in an objective way**
+  - Curious families will go through [Family education program](/model) and adopting the Value based living.
   - We will do Existence based human centric contemplation. It will equip us with clarity for every dimension of our life. It is a resolution based understanding of our current personal, familial, social & ecological problems. 
   - We are drawing inspiration from [Co-existentialism](http://www.madhyastha-darshan.info) and all old philosophical traditions, relegions and spiritual teachings.
-  - Understand the conceptual, working and operational model for Universal Value based Living and Human Order
-- **Apply the conceptual, working and operational models**
-  - Conceptual model is about understanding the nature of Life, Existence & Co-existence
-  - Working model is [Universal Values based Living](/values)  
-  - Physical or operational model covers production, exchange, conservation and right utilisation of resources
-  - Families will join the local and global Lifemaker family, by going through [Family education program](/model) and adopting the Value based living.
-  - We are documenting these models currently
+  - Those who have understood will naturally help others understand. 
+- **Apply the conceptual, working and operational models that nurture Life and Happiness**
+  - Conceptual model covers the understanding of Life, Existence & Co-existence
+  - Working model covers [Value based Living](/values)  
+  - Physical or operational model covers economics, health, food, environment, production, exchange, conservation, right utilisation of resources and more such things as have to do with physicality of existence
+  - These will extend existing socio-economic-political System which provides merely a promise of abundance and wellbeing, but is inherently not capable of doing so.
 - **Be a decentralised, equalitarian, global society, organised as locally sustainable ecological communities** 
-  - We are focusing on families in our approach since family is the basic unit of well functional society, not the individual.
-  - Local (else remote) families must fulfill each other's real needs, as Universal Enlightened Family.
+  - The network will support each family and child, in living justfully and happy. No one has to struggle alone, or shall be treated that way. 
   - We will sustain and produce based on natural farming, eco-businesses/services, living skills and physical work
+  - We will be as decentralised as possible. 
+  - Local production and exchange will be of key
   - We will co-own, share and utilise land, water, resources and infrastructure *in the right manner*
   - Conduct residential programs for immersive co-living, skills and knowledge sharing
-  - Member families in cities can visit, to learn and live by the Lifemaker way, in the context of cities.
+  - Member families forced to be in cities can visit to learn and live by the Lifemaker way, in the context of cities.
 - **Connect and cooperate globally as Enlightened Human family**
   - Use online social network (Ashram) and other online resources for getting help, helping, sharing and collaborating remotely.
-  - Member families will support each other for health, safety and education.
   - Shape local and global policies, system and order for overall benefit of Lifemaker network, all humanity and all Life on Earth
   - Fund travel expenses for necessary learning or teaching; sustainable infrastructure development
   - Have workshops, programs and events for exposure, skills and knowledge
-  - Have registered NGO in India to organise funds, do local pilots and coordinate a global movement
