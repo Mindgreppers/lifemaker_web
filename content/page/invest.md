@@ -7,6 +7,7 @@ draft: false
 Lifemaker is a by and for humanity project. *Our goal is taking Humanity to final stage of Evolution - realised collective consciousness and Value based sustainable Order.* For this big task to be accomplished, we need not only hard work and mind share from many, but also material and resource support, including funds. 
 
 We need funds for these immediate goals 
+
 * Register a not-for-profit organisation
 * Setup a space for education, sustainability and immersive co-living in Dharamsala, HP, India. This will take curious guests from all across the world.
 * Develop and host our online social network, and apps, to collaborate and share remotely

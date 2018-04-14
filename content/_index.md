@@ -43,7 +43,7 @@ weight: -270
   * Speak to us remotely through Lifeline
 * When the understanding will dawn, what is to be done will be known, and will also happen.
 * Tell others who feel the need for a change in their lives right away! Call out to our tribe!
-* Help us with funds.
+* [Invest with funds.](/invest)
 * Help in any way.
 
 ## We provide a friendly Lifeline
