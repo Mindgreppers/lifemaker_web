@@ -31,6 +31,7 @@ weight: -270
 - Online social network and forum setup
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
   - With insights from our members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) communities 
+  - [In this book](http://madhyasth-darshan.info/wp-content/uploads/2012/02/zz-Manav-Vayavardarshan-HindiEnglish-2012.pdf) you can get an introduction to Madyastha Darshan
 - Evolving the [Way of Life](/values) based on Universal Values
 - Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
 - Establishing a base in Dharamsala, in an eco setup with member families
