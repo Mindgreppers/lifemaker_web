@@ -13,13 +13,13 @@ weight: -270
 
 **Our on ground pilot is based in Dharamsala, Himachal Pradesh, India.** We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. We are in process of talks with some village families to get some land for running our program in parternship. 
 
-**Our online social network will be live soon. It is meant to help people connect, cooperate and collaborate with each other from their homes, farms and community spaces, in the following ways**
+**Our online social network will be live soon. It is meant to help people connect, cooperate and collaborate with each other from their homes, farms and community spaces, in the following ways. It is open to everyone, with or without a shared understanding of Life. It is a place for working towards **
 
 * Mutual help 
 * Life advice
 * Sustainability and harmony
-* Sharing knowledge, understanding and wisdom 
-* Develop the Operating model (Sustainable production, Exchange, Economics, Organisation, Decision Making and mutual support)
+* Sharing knowledge, understanding and wisdom of Self, Life, Existence and Co-existence 
+* Evolution of working, conceptual and operating models (Value based living, family education, sustainable production, exchange, economics, organisation, resource sharing, decision making etc)
 * Value based living
 * More such topics.  
 
