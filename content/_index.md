@@ -3,7 +3,7 @@ title: Home
 menu: main
 weight: -270
 ---
-#### Lifemaker is an attempt to create a justful system and order where every family is enlightened and resolved, and Humanity co-exists as an undivided society. The aim is good for everyone of Earth, in continuity, forever.
+#### Lifemaker is an attempt to create a justful system and order where every family is enlightened and resolved, and Humanity co-exists as an undivided society. The aim is good for everyone on Earth, in continuity, forever.
 
 *Many > Sequence > Arrange > Pattern > System > System and Order*
 
