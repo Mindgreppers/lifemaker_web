@@ -3,17 +3,17 @@ title: Home
 menu: main
 weight: -270
 ---
-## Shared understanding of Human, Life, Existence and Co-existence. Humanity in mutual fulfilment and sustainable happiness.
+#### Lifemaker is an attempt to create a justful system and order where every family is enlightened and resolved, and Humanity co-exists as an undivided society. The aim is good for everyone of Earth, in continuity, forever.
 
 *Many > Sequence > Arrange > Pattern > System > System and Order*
 
-> **Humanity is not happy and faces a grim and unsustainable future. We have a tremendous potential, still unrealised. We need a positive and sustainable change.** Read more on [why we need a change](/post/background) and [Lifemaker's approach to manifest it](/post/approach). Lifemaker's solution for Humanity is objective, integral and holistic, covering all aspects of Life - from material to consciousness; and is meant to be understandable and agreeable for any family from any background. Our way to spread the understanding is through families, though we welcome curious individuals too. **We want things to be the way they should be.** Every family will be empowered and supported via Life Education and Value based Social Order. It will take care of itself, its Environment and Earth in wise ways. It will inspire its neighbors based on its happiness and Value based behavior in co-existence. **We wish to see Human evolution reach the final stage of its development - Fully realised Human consciousness in Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth.
+> **The essence of Human Life is happiness. Yet Humanity is not happy today. We face a painful present and are laying seeds for a catastrophic future. Being the only animal in knowledge state, we have the potential to solve any problem and co-exist happily. [We need a positive and sustainable change](/post/background). To realise our true potential as Humanity, we need [a systematic and processible approach](/post/approach)**. The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based, where enlightened, resolved, happy and prosperous families come together to form an undivided Human society. **We wish to see Humanity reach the final stage of evolution where social consciousness is fully evolved and can be witness in a Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth. To establish a proven working blueprint, we are doing a pilot from Dharamsala, Himachal Pradesh, India.
 
 **Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May.** At least two people from every family or friends, must come together. We welcome curious individuals too. But at least two visitors are preferred because when two share the same understanding, the evolution is much faster, and the capability of bringing a change is greater. Age no bar. Children especially welcome.
 
 **Our on ground pilot is based in Dharamsala, Himachal Pradesh, India.** We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. We are in process of talks with some village families to get some land for running our program in parternship. 
 
-**Our online social network will be live soon. It is meant to help people connect, cooperate and collaborate with each other from their homes, farms and community spaces, in the following ways. It is open to everyone, with or without a shared understanding of Life. It is a place for working towards **
+**Our online forum (Ashram) will be live soon for global community to connect and collaborate. Anyone can register and participate. It is a place for working towards**
 
 * Mutual help 
 * Life advice
@@ -23,14 +23,16 @@ weight: -270
 * Value based living
 * More such topics.  
 
-*We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, this has to be a collective effort of everyone. The movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
+*We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, we need a bigger team as this has to be a collective effort of everyone. The movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
 
 ## What's happening?
 - **Counselling for young families and singles in Dharamsala area, in May**
 - **Workshops in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family by 15th May**
 - Online social network and forum setup
 - Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
-  - With insights from our members, [Madhyastha Darshan](http://madhyasth-darshan.info/) and [Saadho](http://saadhosangha.org/) communities 
+  - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
+  - Also thanks to [Saadho](http://saadhosangha.org/) and elders in our group for guiding us on the way 
+  - Also thanks to everyone who is supporting and contributing in different ways.
   - [In this book](http://madhyasth-darshan.info/wp-content/uploads/2012/02/zz-Manav-Vayavardarshan-HindiEnglish-2012.pdf) you can get an introduction to Madyastha Darshan
 - Evolving the [Way of Life](/values) based on Universal Values
 - Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
