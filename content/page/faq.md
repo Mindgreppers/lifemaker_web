@@ -22,7 +22,7 @@ The Way of Living is an aspirational charter of Universal values, which all Life
 
 #### How can I follow the Way of Living in my life?
 The intention will already make wonders. We all need to work on ourselves, in a family based approach, and put in the daily effort to become the best we can possibly be. We have a family based education approach.
-We all have some flaws. We all make mistakes and that’s when you’ll find in the LifeMaker community, all the support and guidance you’ll need to get back on track.
+We all have some flaws. We all make mistakes and that’s when you’ll find in the LifeMaker community, all the support and guidance you’ll need to get back on track. If you are curious about it, then please get in touch with us and join our incubation program.
 
 #### How can I contribute to the Way of Living?
 The Way of Living is an open document and will evolve as our community evolves.  You can contribute by contacting us with your suggestions and inputs.
