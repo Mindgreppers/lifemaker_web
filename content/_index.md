@@ -3,67 +3,78 @@ title: Home
 menu: main
 weight: -270
 ---
-#### Lifemaker is an attempt to create a justful system and order where every family is enlightened and resolved, and Humanity co-exists as an undivided society. The aim is good for everyone on Earth, in continuity, forever.
 
-*Many > Sequence > Arrange > Pattern > System > System and Order*
+Lifemaker is a not-for-profit collaboration of self governed human families, living in, for and with *universal good*. The family members participate in, upkeep and co-host a complimentary and cooperative environment for sustainability, holistic nurture and universal consciousness. The working model, adopted by every family, has the following five dimensions: 
 
-> **The essence of Human Life is happiness. Yet Humanity is not happy today. We face a painful present and are laying seeds for a catastrophic future. Being the only animal in knowledge state, we have the potential to solve any problem and co-exist happily. [We need a positive and sustainable change](/post/background). To realise our true potential as Humanity, we need [a systematic and processible approach](/post/approach)**. The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based, where enlightened, resolved, happy and prosperous families come together to form an undivided Human society. **We wish to see Humanity reach the final stage of evolution where social consciousness is fully evolved and can be witness in a Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth. To establish a proven working blueprint that can scale to all Earth, Lifemaker team is doing a pilot from Dharamsala, Himachal Pradesh, India.
+* Education - Understanding and realising the nature of self/life/human, existence as co-existence only and humane values. Also, useful knowledge & skills for living.
+* Health - mental and physical
+* Production - products and services which are friendly to nature and health
+* Exchange - share abundance and be locally sustainable by every family producing more than the family's need
+* Justice - Laws for humane value based conduct and cooperation
 
-**Family workshops - June 1st - 12th in Dharamsala, HP, India. Contact us to register by 15th May.** At least two people from every family or friends, must come together. We welcome curious individuals too. But at least two visitors are preferred because when two share the same understanding, the evolution is much faster, and the capability of bringing a change is greater. Age no bar. Children especially welcome.
+![image](/images/infographicLifemaker.png)
 
-**Our on ground pilot is based in Dharamsala, Himachal Pradesh, India.** We are conducting workshops with local families to develop a shared understanding and starting to bond and live together with mutual cooperation. We are in process of talks with some village families to get some land for running our program in parternship. 
+With 100 families of an area coming together based on shared objective understanding, the model gets proven. With just two families, the process kickstarts. As every family continues to understand and move forward in awakening progression, it witnesses more and more of wisdom, prosperity, confidence and mutual fulfilment in action. The proof of its awakening is found in the way it lives, and in the happiness, contentment, peace and co-existential bliss that it experiences. 
 
-**Our online forum (Ashram) will be live soon for global community to connect and collaborate. Anyone can register and participate. It is a place for working towards**
+#### Families join us via an incubation programme 
+At the time of conclusion of the incubation programme of three months, families willingly take the vow of Lifemaker, which they are expected to keep for rest of their lifetime . If a person or family wishes to walk out, or does crimes repetitively against the humane laws, it is set free from any expectations or engagement with Lifemaker universal family. Post incubation, the programme continues to evolve, as the family goes further deep into its process of education, understanding, awakening and collaboration in Lifemaker's local and global working model. 
 
-* Mutual help 
-* Life advice
-* Sustainability and harmony
-* Sharing knowledge, understanding and wisdom of Self, Life, Existence and Co-existence 
-* Evolution of working, conceptual and operating models (Value based living, family education, sustainable production, exchange, economics, organisation, resource sharing, decision making etc)
-* Value based living
-* More such topics.  
+Currently we conduct
 
-*We are looking at evolving and implementing a complete solution to all Human needs - from matter to consciousness. This movement is a fresh start. While the founders and their network have a top level understanding and proposal, we need a bigger team as this has to be a collective effort of everyone. The movement needs the curiosity and involvement from the larger humanity to manifest and grow.*
+- Incubation programme for families residing in and around Dharamsala, HP, India.
+- Distant incubation programme for families residing elsewhere in the world
 
-## What's happening?
-- **Counselling for young families and singles in Dharamsala area, in May**
-- **Workshops in English and Hindi - June 1st - 12th in Dharamsala, HP, India. Contact us to register as family by 15th May**
-- Online social network and forum setup
-- Evolving the [blueprint for Lifemaker model](/post/approach) and the workshop content material
-  - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
-  - Also thanks to [Saadho](http://saadhosangha.org/) and elders in our group for guiding us on the way 
-  - Also thanks to everyone who is supporting and contributing in different ways.
-  - [In this book](http://madhyasth-darshan.info/wp-content/uploads/2012/02/zz-Manav-Vayavardarshan-HindiEnglish-2012.pdf) you can get an introduction to Madyastha Darshan
-- Evolving the [Way of Life](/values) based on Universal Values
-- Sharing the vision with village families near Tang, Dharamsala, Himachal Pradesh, India
-- Establishing a base in Dharamsala, in an eco setup with member families
-- Website and content
-- Registering a Trust or Society in India
+The distant programme runs via contact and regular updates through electronic medium. Also the families either make a yearly visit to Dharamsala center, or invite invite Lifemaker team to their village, town or city.
 
-## We need a team 
-* We need teachers who are living the Lifemaker way. 
+In both the programmes, someone from Lifemaker family connects with member families on regular basis, to get them started and evaluate the progress, in a mutual confidence based relationship. Co-located families meet each other once in a month. We share successes and challenges with each other. We help each other in any way possible. The local and global Lifemaker network is accessible to every family for help in form of advice, resources and knowledge. Our online forum will be up soon, for more effective global synchronisation.
+
+*At least two members from every participating family must show interest. Children are considered as equals.* 
+
+
+
+#### Do you think about these things? 
+> **The essence of Human Life is wisdom and happiness.** Yet, do you find yourself or most of humanity, as resolved and happy? Is our current society, system and environment simple, fair and productive for life? Or is it somewhat complicated, unjust or counterproductive to life? Have you ever felt that we have been choosing to blindly believe in what is told to us, instead of arriving at the total/objective truth ourselves? Do you feel that who else, if not human beings, are responsible for all existing problems on Earth? Have you ever felt sad when you see the damage we have done to Earth - its air, water and the life on it? Have you ever wondered why we are facing more and more problems without solutions? Have you ever wondered why do we lack mutual trust, understanding and fulfillment in our relationships - evidenced as broken society and weakening families? Have you ever realised how power and money has become our relegion, and selfishness our instinct, instead of shared happiness and mutual fulfillment? Have you felt sad seeing a war orphaned child or another one starving from hunger, while many of us waste food after super luxury dining? Have you ever observed that even those hoarding all the wealth of the world are not really happy? Do you foresee that given the current trend, our grandchildren are going to face even more complications, pain and suffering than us? Do you sometimes wish to pass on a better world to our children than the one we got? Have you ever felt the need for [a positive and sustainable change](/post/background) within you, within your family and the society? **Have you ever wondered where does the power of right thinking and change lie - in the existing system, businessmen, relegions, governments or some other external agent or agency with superpowers? Or does it lie within each one of us?**
+
+#### If you too think on these things, then we must connect 
+
+> You can reach out to us anytime via the [lifeline](/page/lifeline) with introduction, questions or suggestions. 
+
+#### Many > Sequence > Arrange > Pattern > System > System and Order
+
+As and when one family awakens, it becomes a source of inspiration and role model for positive and meaningful change. Its extended family, friends, colleagues and neighbours; all benefit from it and naturally feel a momentum to become like them. The undivided and enlightened human society grows manifold (in quality, capability and possibilities) with every new member. *Till now humanity has evolved to the system level. (We have a system that works.)* ***Lifemaker is momentum in direction of system and order.***
+
+## We are building our team 
+* We need inpirational families who are living the Lifemaker way. 
   * First, let us understand ourselves and arrive on the same page.
-  * We invite the curious ones to come for one of our [workshops](/workshops-and-retreats/) with family (at least two people, together for life)
+  * We invite the curious families to get in touch with us and join our incubation program. One person can get in touch and be introduced, but at least two must formally join the incubation programme.
+* We welcome experts in the fields of education, philosophy, psychology, science, political science, economics, sociology, natural farming, community based cooperatives & eco-local-sustainability to help us evolve the educational, philosophical and working model.
 * [Invest with funds or help raise investment.](/invest)
-* We need help with copywriting and video shoots/editing
-* We need experts in psychology, economics, sociology, education fields
-* We need volunteers on ground
-* We need invitations for events in different cities
-* We need ideas. We need help in all ways possible.
-* We need IT and design related help too.
 
 We are grateful for all the people who have been helping us in different capacity. 
+
+## What's happening?
+- Incubation programme in Dharamsala, HP with few local families
+- Meeting families from rest of the world, and remote incubation
+- Internal discussions on the [blueprint for Lifemaker model](/post/approach)
+  - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
+  - Also thanks to [Saadho](http://saadhosangha.org/) and other members in our group for guiding us on the way 
+- Internal discussions and documentation of the [Way of Life](/values) based on Universal Values
+- Looking for land near Dharamsala, HP, for starting first campus of Life university
+- Registering a not-for-profit company which will incubate enlightened families and hubs all across the world, and help them coordinate, cooperate and grow together
+
 
 ## We provide a friendly Lifeline
 
 *Facing any personal, familial or social question, problem or challenge in Life? Curious about Lifemaker? Have anything to share? You can ask us any question or share with us anything.* 
-Reach out to our [Lifeline](/lifeline) today! The Ashram forum will be up soon. 
+Reach out to our [Lifeline](/lifeline) today!
 
 ## We are thankful 
 to all relegions, messengers, philosophers, teachers, scientists, social reformers and all benevolent beings, for their contribution towards human evolution and upliftment. We wish to see their work to completion. We want to see Humanity reach its full potential. 
 
 ## Call to the tribe
 
-Every human is seeking happiness, mostly externally. Happiness can only be found when in sync with own true nature. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, we can form a large river, which surely will reach the ocean of Consciousness; and there will be mutual wellbeing and happiness all along the way.
+Lifemaker families realise the need for change - both within and without. To realise our true potential as Humanity, we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based, where enlightened, resolved, happy and prosperous families come together to form an undivided Human society. **We wish to see Humanity reach the final stage of evolution where social consciousness is fully evolved and can be witnessed in a Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth. To establish a proven working blueprint that can scale to all Earth, Lifemaker team is doing a pilot from Dharamsala, Himachal Pradesh, India.
+
+Every human is seeking happiness, mostly externally. Happiness can only be found when we are in sync with own true nature, and our relationships are healthy. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, we can form a large river, which surely will reach the ocean of Consciousness; and there will be mutual wellbeing and happiness all along the way.
 
 {{< youtube d_nsFjSuMUU >}}
