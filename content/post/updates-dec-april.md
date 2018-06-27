@@ -14,7 +14,7 @@ We travelled across India and did few events on Lifemaker, introducing the conce
 In 1970s a new philosophy and solution was brought forward for the benefit of Humanity by Shri A Nagraj. This grew as a strong decentralised movement across India, though not fully coordinated yet. At Lifemaker we wish to coordinate our efforts across the World. This philosophy so far seems complete and gives an operating/conceptual/working model to Lifemaker. Highly recommended: Please discover more about Madyastha Darshan [here](http://madyastha-darshan.info). [Here](http://madhyasth-darshan.info/wp-content/uploads/2012/02/zz-Manav-Vayavardarshan-HindiEnglish-2012.pdf) is an introductory text in Hindi and English both. We are currently exploring an integration with the Jivan Vidya (Life Education) community, and seeing how we can work together going forward.
 
 ### Online Ashram is about to go live
-*As was the plan for 2018-19, we have succesfully (and before time, and with ZERO expense) setup the online social network and forum. It will be made live in May.*
+*As was the plan for 2018-19, we have succesfully setup the online social network and forum. It will be made live in second half of 2018.*
 We saved a lot of time, work and money thanks to [open source project Discourse](http://discourse.org). 
 It is our online space for mutual help exchange, life advice, sharing knowledge and information, activism, evolving working, conceptual and operational model for Humanity, Lifemaker itself etc. This will help us reach out and connect people from across the world fast.
 
