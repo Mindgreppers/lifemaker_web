@@ -8,3 +8,11 @@ We conducted introduction to Lifemaker workshops in five villages in Dharamsala 
 
 You can find the posts from the event on our Facebook page.
 
+As our next steps we are
+- Starting the first batch of Lifemaker families in Dharamsala
+- Looking for land to build our first community space and Life university, around Dharamsala, HP, India
+- Documenting the philosophy and engaging in discussions with philosopers, scientists and rational thinkers from across the world.
+- Documenting the Articles and Memorandum of Association for registering a not-for-profit company in India
+- Approaching social activists, thinkers and change makers from across the world 
+
+
