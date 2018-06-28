@@ -17,7 +17,7 @@ Lifemaker is a not-for-profit collaboration of self governed human families, liv
 With 100 families of an area coming together based on shared objective understanding, the model gets proven. With just two families, the process kickstarts. As every family continues to understand and move forward in awakening progression, the proof of understanding is visible more and more in the wisdom, prosperity, confidence and mutual fulfilment with which it lives; and in the happiness, contentment, peace and co-existential bliss that it experiences. 
 
 #### Families join us via an incubation programme 
-At the time of conclusion of the incubation programme of three months, families willingly take the vow of Lifemaker, which they are expected to keep for rest of their lifetime . If a person or family wishes to walk out, or does crimes repetitively against the humane laws, it is set free from any expectations or engagement with Lifemaker universal family. Post incubation, the programme continues to evolve, as the family goes further deep into its process of education, understanding, awakening and collaboration in Lifemaker's local and global working model. 
+At the time of conclusion of the incubation programme of three months, family members take the vow of humane conduct, which they are expected to keep for rest of their lifetime. If a person or family wishes to walk out, or does crimes repetitively against the humane laws, it is set free from any expectations or engagement with rest of the families. Post incubation, the programme continues to evolve, as the family goes further deep into its process of education, understanding, awakening and collaboration in Lifemaker's local and global working model. 
 
 Currently we conduct
 
