@@ -16,8 +16,8 @@ Lifemaker is a not-for-profit collaboration of self governed families, living in
 
 With 100 families of an area coming together based on shared objective understanding, the model gets proven. With just two families, the process kickstarts. As every family continues to understand and move forward in awakening progression, the proof of understanding is visible more and more in the wisdom, prosperity, confidence and mutual fulfilment with which it lives; and in the happiness, contentment, peace and co-existential bliss that it experiences. 
 
-#### The human wish and required action
-Lifemaker families realise the need for shift in consciousness - both within, in family and in society. To realise our true potential we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based, where enlightened, resolved, happy and prosperous families come together to form an undivided Human society. **We wish to see Humanity reach the final stage of evolution where social consciousness is fully evolved and the evidence is in society's Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth. To establish a proven working blueprint that can scale to all Earth as a timeless tradition, Lifemaker team is doing a pilot from Dharamsala, Himachal Pradesh, India.
+#### The model
+To realise our true potential we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based. To establish a proven working blueprint that can scale to all Earth as a timeless tradition, Lifemaker team is doing a pilot from Dharamsala, Himachal Pradesh, India.
 
 #### Do you think on these lines?
 Who am I? What is the total object of knowing (Truth in totality)? Can I understand and experience it on my own, without blindly following the dictacts of a Guru, priest or society? Do I also suffer? Why? Why is humanity suffering today? Why do we not respect and love each other and nature? Why do the relationships in families and society remain unfulfilled or get broken? Why is the Earth and environment in such a bad shape? If I pass on Earth in worse condition to my children than how I found it, then do I really love my children? Does money and material comfort give me happiness? Or is happiness a feature of my mind? Can happiness be felt in silo by a unit, or is it felt in relation with co-existence? 
@@ -53,14 +53,14 @@ You can read more about the incubation program [here](/incubation)
 
 
 ## What's happening?
-- Incubation programme in Dharamsala, HP with local families
-- Meeting families from rest of the world, and remote incubation
 - Internal discussions on the [blueprint for Lifemaker model](/post/approach)
   - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
   - Also thanks to [Saadho](http://saadhosangha.org/) and other members in our group for guiding us on the way 
 - Internal discussions and documentation of the [Way of Life](/values) based on Universal Values
 - Looking for land near Dharamsala, HP, for starting first campus of Life university
 - Registering a not-for-profit company which will incubate enlightened families and hubs all across the world, and help them coordinate, cooperate and grow together
+- Incubation programme in Dharamsala, HP with local families
+- Meeting families from rest of the world, and remote incubation
 
 
 ## We provide a friendly Lifeline
