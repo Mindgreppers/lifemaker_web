@@ -4,7 +4,7 @@ menu: main
 weight: -270
 ---
 
-Lifemaker is a not-for-profit collaboration of self governed human families, living in, for and with *universal good*. The family members participate in, upkeep and co-host a complimentary and cooperative environment for sustainability, holistic nurture and universal consciousness. The working model, adopted by every family, has the following five dimensions: 
+Lifemaker is a not-for-profit collaboration of self governed families, living in and for *universal good*. It is neither a commune nor a cult. It is the model in application for undivided human society. The family members participate in, upkeep and co-host a complimentary and cooperative environment for sustainability, holistic nurture and universal consciousness. The working model, adopted by every family, has the following five dimensions: 
 
 * Education - Understanding and realising the nature of self/life/human, existence as co-existence only and humane values. Also, useful knowledge & skills for living.
 * Health - mental and physical
@@ -16,32 +16,21 @@ Lifemaker is a not-for-profit collaboration of self governed human families, liv
 
 With 100 families of an area coming together based on shared objective understanding, the model gets proven. With just two families, the process kickstarts. As every family continues to understand and move forward in awakening progression, the proof of understanding is visible more and more in the wisdom, prosperity, confidence and mutual fulfilment with which it lives; and in the happiness, contentment, peace and co-existential bliss that it experiences. 
 
+#### Do you think about these things? 
+> **The essence of Human Life is wisdom and happiness.** Yet, do you find yourself or most of humanity, as resolved and happy? Is our current society, system and environment simple, fair and conducive for life? Or is it somewhat complicated, unjust or counterproductive to life? Have you ever felt that we have been choosing to blindly believe in what is told to us, instead of arriving at the total/objective truth ourselves? Do you ever wonder that who else, if not human beings, are responsible for all existing problems on Earth? Have you ever felt sad when you see the damage has been done to Earth - its air, water and the life on it? Have you ever wondered why we are facing more and more problems without solutions? Have you ever wondered why do we lack mutual trust, understanding and fulfillment in our relationships - evidenced as broken society and weakening families? Have you ever realised how power and money has become our relegion, and selfishness our instinct, instead of shared happiness and mutual fulfillment? Have you felt sad seeing a war orphaned child or another one starving from hunger, while many of us waste food? Have you ever observed that even rich ones amongst us are not really happy in continuity? Have you ever thought how much effort we do for a survival and comfort of the body, but in comparison we do almost nothing for the mind, for relationships between life to life? Have you ever wondered which is of bigger value - the mind or the body? Do you foresee that given the current trend, our grandchildren are going to face even more complications, pain and suffering than us? Do you sometimes wish to pass on a better world to our children than the one we got? Have you ever felt the need for [a positive and sustainable change](/post/background) within you, within your family and the society? **Have you ever wondered where does the power of right thinking and change lie - in the existing system, businessmen, relegions, governments or some other external agent or agency with superpowers? Or does it lie within each one of us? Do you wish to be in continuity of resolution, abundance, fearlessness and co-existential fulfilment? Do you wish to experience continuity of happiness, contentment, peace and bliss in your life and relationships? Are you waiting for someone to make the change happen in you, your family and neighborhood? Or are you feeling inspired to be the change you want to see?**
+
+#### If you too think on these lines, we are here for you. And we need you too.
+
+> You can reach out to us anytime via the [lifeline](/page/lifeline) with introduction, questions or suggestions. 
+
 #### Families join us via an incubation programme 
-At the time of conclusion of the incubation programme of three months, family members take the vow of humane conduct, which they are expected to keep for rest of their lifetime. If a person or family wishes to walk out, or does crimes repetitively against the humane laws, it is set free from any expectations or engagement with rest of the families. Post incubation, the programme continues to evolve, as the family goes further deep into its process of education, understanding, awakening and collaboration in Lifemaker's local and global working model. 
 
 Currently we conduct
 
 - Incubation programme for families residing in and around Dharamsala, HP, India.
 - Distant incubation programme for families residing elsewhere in the world
 
-The distant programme runs via contact and regular updates through electronic medium. Also the families either make a yearly visit to Dharamsala center, or invite invite Lifemaker team to their village, town or city.
-
-In both the programmes, someone from Lifemaker family connects with member families on regular basis, to get them started and evaluate the progress, in a mutual confidence based relationship. Co-located families meet each other once in a month. We share successes and challenges with each other. We help each other in any way possible. The local and global Lifemaker network is accessible to every family for help in form of advice, resources and knowledge. Our online forum will be up soon, for more effective global synchronisation.
-
-*At least two members from every participating family must show interest. Children are considered as equals.* 
-
-
-
-#### Do you think about these things? 
-> **The essence of Human Life is wisdom and happiness.** Yet, do you find yourself or most of humanity, as resolved and happy? Is our current society, system and environment simple, fair and productive for life? Or is it somewhat complicated, unjust or counterproductive to life? Have you ever felt that we have been choosing to blindly believe in what is told to us, instead of arriving at the total/objective truth ourselves? Do you feel that who else, if not human beings, are responsible for all existing problems on Earth? Have you ever felt sad when you see the damage we have done to Earth - its air, water and the life on it? Have you ever wondered why we are facing more and more problems without solutions? Have you ever wondered why do we lack mutual trust, understanding and fulfillment in our relationships - evidenced as broken society and weakening families? Have you ever realised how power and money has become our relegion, and selfishness our instinct, instead of shared happiness and mutual fulfillment? Have you felt sad seeing a war orphaned child or another one starving from hunger, while many of us waste food after super luxury dining? Have you ever observed that even those hoarding all the wealth of the world are not really happy? Do you foresee that given the current trend, our grandchildren are going to face even more complications, pain and suffering than us? Do you sometimes wish to pass on a better world to our children than the one we got? Have you ever felt the need for [a positive and sustainable change](/post/background) within you, within your family and the society? **Have you ever wondered where does the power of right thinking and change lie - in the existing system, businessmen, relegions, governments or some other external agent or agency with superpowers? Or does it lie within each one of us?**
-
-#### If you too think on these things, then we must connect 
-
-> You can reach out to us anytime via the [lifeline](/page/lifeline) with introduction, questions or suggestions. 
-
-#### Many > Sequence > Arrange > Pattern > System > System and Order
-
-As and when one family awakens, it becomes a source of inspiration and role model for positive and meaningful change. Its extended family, friends, colleagues and neighbours; all benefit from it and naturally feel a momentum to become like them. The undivided and enlightened human society grows manifold (in quality, capability and possibilities) with every new member. *Till now humanity has evolved to the system level. (We have a system that works.)* ***Lifemaker is momentum in direction of system and order.***
+You can read more about the incubation program [here](/incubation)
 
 ## We are building our team 
 * We need inpirational families who are living the Lifemaker way. 
@@ -75,6 +64,6 @@ to all relegions, messengers, philosophers, teachers, scientists, social reforme
 
 Lifemaker families realise the need for change - both within and without. To realise our true potential as Humanity, we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based, where enlightened, resolved, happy and prosperous families come together to form an undivided Human society. **We wish to see Humanity reach the final stage of evolution where social consciousness is fully evolved and can be witnessed in a Value based Living Order.** And the time for that to happen is now, or else it may be too late for us on Earth. To establish a proven working blueprint that can scale to all Earth, Lifemaker team is doing a pilot from Dharamsala, Himachal Pradesh, India.
 
-Every human is seeking happiness, mostly externally. Happiness can only be found when we are in sync with own true nature, and our relationships are healthy. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, we can form a large river, which surely will reach the ocean of Consciousness; and there will be mutual wellbeing and happiness all along the way.
+> Every human is seeking happiness, mostly externally. Happiness can only be found when we are in sync with own true nature, and it reflects in fulfilment of our relationships. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, we can form a large river, which surely will reach the ocean of Consciousness; and there will be mutual wellbeing and happiness all along the way.
 
 {{< youtube d_nsFjSuMUU >}}
