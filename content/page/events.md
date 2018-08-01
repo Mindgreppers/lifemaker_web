@@ -5,7 +5,7 @@ menu: main
 draft: false 
 ---
 
-We continuously engage with curious families from across the world, via our local or remote family education program. You can reach out to us anytime via the [lifeline](/lifeline)
+_We engage with curious people, via our local or remote [family incubation program](/incubation). You can reach out to us or apply anytime via the [lifeline](/lifeline)_
 
 Here is our calendar for the summer of 2018
 
@@ -13,6 +13,8 @@ Here is our calendar for the summer of 2018
 - May - Informal workshops and meetings with local youth and couples, from Dharamsala area.
 - June 1st - 12th - Dharamsala, Himachal Pradesh, India
 - June 31st - Dharamsala Family gathering and pilot kickstart
+- August - September - Italy and Europe visit and sharing
+- October - December - Dharmasala meetup, and workshops (dates to be declared soon)
 
 If you curious and wish to explore more with us, please visit us or invite us to your place.
 
