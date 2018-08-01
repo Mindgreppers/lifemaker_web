@@ -1,5 +1,5 @@
 ---
-title: "Invest"
+title: "Funds"
 date: 2018-04-14T12:15:26+05:30
 menu: main
 draft: false 
