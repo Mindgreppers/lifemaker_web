@@ -14,8 +14,8 @@ Read more about such questions [here](/post/think-on-these-lines)
 #### We also think on these lines.
 If such thoughts intrigue you, please contact us through the [lifeline](/lifeline). We will be happy to help you be clearer, and to also learn from you.
 
-#### The solution - Evolution of human consciousness (the final frontier)
-The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence). We wish to see every human family and humanity reach the climax of consciousness evolution, where we witness a never ending tradition of Shubh (happiness, contentment, peace and bliss) in co-existence on Earth - within ourselves and in society. We wish to make the saints, prophets, messiahs, philosophers, scientists and all our ancestors proud.
+#### The solution to - Family by family evolution of human consciousness
+The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence); and a working model which works forever without corruption. 
 
 **The five point working model of universal orderliness** covers: 
 
@@ -38,12 +38,13 @@ The intention of Lifemaker is to unite families across the Earth as an undivided
 needs
 * **Healthy air and water** for every inhabitant of Earth, to breath and drink well
 
+#### The model
+To realise our true potential we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based.
+
+
 #### What is family?
 Generally speaking, a family, whether of blood or heart, is a group which lives together with love and care, and its members find themselves assured of safety, mutual fulfillment, growth and happiness in their mutuality. 
 This is the environment which we seek for humanity, as undivided human society in Universal Orderliness. 
-
-#### The model
-To realise our true potential we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based.
 
 ## Call to the tribe
 
