@@ -14,8 +14,8 @@ Read more about such questions [here](/post/think-on-these-lines)
 #### We also think on these lines.
 If such thoughts intrigue you, please contact us through the [lifeline](/lifeline). We will be happy to help you be clearer, and to also learn from you.
 
-#### The solution to - Family by family evolution of human consciousness
-The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence); and a working model which works forever without corruption. 
+#### The solution to - A paradigm shift for all of us 
+The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence); and a working model which works forever without corruption from illusion and power. 
 
 **The five point working model of universal orderliness** covers: 
 
