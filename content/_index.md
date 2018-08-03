@@ -3,8 +3,19 @@ title: Home
 menu: main
 weight: -270
 ---
+#### Do you ever think so?
+**Who am I as a human?** What is reality? Where am I? Where am I headed? How have we arrived here and where are we going? **What is the highest pursuit of every human including me, if not Shubh (happiness, contentment, peace and bliss)?** In my happiness is everyone's happiness or in everyone's happiness lies mine? Whatever we are doing, is it really fulfilling us? Am I fulfilled? **Am I doing things happily or in order to be happy? What about my family?** Why is society broken and families are breaking apart? 
 
-The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence). We wish to see every human family and humanity reach the pinnacle of consciousness evolution, where we witness a never ending tradition of Shubh (happiness, contentment, peace and bliss) in co-existence on Earth.
+What good am I doing for the Earth and environment? **If I really love my children and their children to be, then what am I doing for giving them better air, water, earth and society than what I got?** Does a big bank account, comfort of the body, loss of another, gossip, comparison, competition, social show off etc. give my family any resolution or happiness? Or is it holistic understanding of Life, confidence in each other and mutual fulfillment in relationships? **Is happiness from the body or the mind?** _Who am I as human? What is Existence as co-existence? What is the right way to live? Are we living like a flock of sheep, instead of humans who have creativity and freedom of action? How can I and my family be own masters and knowers of existence, instead of being blind followers?_
+
+**Where does the power of positive change lie? In the existing system, businessmen, relegions, governments or some other external agent or agency with superpowers, or does it lie within my family including me?**
+Read more about such questions [here](/post/think-on-these-lines)
+
+#### We also think on these lines.
+If such thoughts intrigue you, please contact us through the [lifeline](/lifeline). We will be happy to help you be clearer, and to also learn from you.
+
+#### The solution - Evolution of human consciousness (the final frontier)
+The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness, by the thread of shared understanding of Universal Values, Life (Self as human) and Existence (as Co-existence). We wish to see every human family and humanity reach the climax of consciousness evolution, where we witness a never ending tradition of Shubh (happiness, contentment, peace and bliss) in co-existence on Earth - within ourselves and in society. We wish to make the saints, prophets, messiahs, philosophers, scientists and all our ancestors proud.
 
 **The five point working model of universal orderliness** covers: 
 
@@ -31,30 +42,8 @@ needs
 Generally speaking, a family, whether of blood or heart, is a group which lives together with love and care, and its members find themselves assured of safety, mutual fulfillment, growth and happiness in their mutuality. 
 This is the environment which we seek for humanity, as undivided human society in Universal Orderliness. 
 
-
-With 100 families of an area coming together based on shared objective understanding, the model gets proven. With just two families, the process kickstarts. As every family continues to understand and move forward in awakening progression, the proof of understanding is visible more and more in the wisdom, prosperity, confidence and mutual fulfilment with which it lives; and in the happiness, contentment, peace and co-existential bliss that it experiences. 
-
 #### The model
 To realise our true potential we need [a systematic process and approach](/post/approach). The model has to be objective, sensible, integral and holistic. And it has to cover all aspects of Life and Living - from material to consciousness. This model must be understandable and happily acceptable to anyone and everyone. Family is the unit of society. Hence our approach is family based.
-
-#### Do you think on these lines?
-Does We include me or me include We? **What is the higest pursuit of every human including me?** What do we want most, if not Shubh (happiness, contentment, peace and bliss)? Does everyone's Shubh lie in my Shubh, or does my Shubh lie in everyone's Shubh? Whatever we are doing, is it really fulfilling us? **Are we doing things happily or in order to be happy?** Why is society broken and families are breaking apart? 
-
-What good or bad am I doing for the Earth and environment? **If I really love my children and their children to be, then what am I doing for giving them better air, water, earth and society than what I got?** Does a big bank account, comfort of the body, loss of another, gossip, comparison, competition, social show off etc. give my family any resolution or happiness? Or is it holistic understanding of Life, confidence in each other and mutual fulfillment in relationships? **Is happiness from the body or the mind?** _Who am I as human? What is Existence as co-existence? What is the right way to live? How can I and my family be own masters and knowers of existence, instead of blind followers?_
-
-**Have you ever wondered where does the power of finding the solutions for positive change lie - in the existing system, businessmen, relegions, governments or some other external agent or agency with superpowers? Or does it lie within me and my family?**
-Read more about such questions [here](/post/think-on-these-lines)
-
-#### If you think on these lines, then we welcome you
-**And we need you.** Please contact us through the [lifeline](/lifeline)
-
-## We are building our team 
-* We need inpirational families who are living the Lifemaker way. 
-  * First, let us understand ourselves and arrive on the same page.
-  * We invite the curious families to get in touch with us and join our incubation program. One person can get in touch and be introduced, but at least two must formally join the incubation programme.
-* We welcome experts in the fields of education, philosophy, psychology, science, political science, economics, sociology, natural farming, community based cooperatives & eco-local-sustainability to help us evolve the educational, philosophical and working model.
-
-We are grateful for all the people who have been helping us in different capacity. 
 
 ## Call to the tribe
 
@@ -75,12 +64,15 @@ You can read more about the incubation program [here](/incubation)
 ## What's happening?
 - Internal discussions on the [blueprint for Lifemaker model](/post/approach)
   - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
-  - Also thanks to [Saadho](http://saadhosangha.org/) and other members in our group for guiding us on the way 
-- Internal discussions and documentation of the [Way of Life](/values) based on Universal Values
+- Internal discussions and documentation of 
+  - The [Way of Life](/values) based on Universal Values
+  - All five dimensions of education, health, production, exchange and justice 
+- Writing and publishing books
 - Looking for land near Dharamsala, HP, for starting first campus of Life university
 - Registering a not-for-profit company which will incubate enlightened families and hubs all across the world, and help them coordinate, cooperate and grow together
 - Incubation programme in Dharamsala, HP with local families
 - Meeting families from rest of the world, and remote incubation
+- Corporate visits and travel for spreading the knowledge
 
 
 ## We provide a friendly Lifeline
