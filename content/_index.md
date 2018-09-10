@@ -3,23 +3,27 @@ title: Home
 menu: main
 weight: -270
 ---
-#### Do you question?
-**What is reality? What is really meant to be a human? What is the highest pursuit of every human, in any moment or endeavour?** What is a human's innate role or purpose in Existence? *Is Existence only, not co-existence?* Does sense of oneness, unity in agreement, mutual fulfillment and co-existential bliss provide greater value for every human? Or sense of "me more important or superior to the rest"? **Is there provision for reality to be how I want it to be, or is there only one Universal Truth applicable everywhere and on everything?** On Earth, isn't a human most capable to grasp Universal knowledge fully, and live the Universal way? If yes, then why am I, my family and humanity failing to be in a state of perfect co-existential Good, every day, all throughout the day? If the existing systems like science, technology, capitalism, consumerism, governments (of any form), religions, were enough to give us resolution, then why does there seem to be no resolution still, at micro and macro level? Why is there division, inequality, misery and strife all around, since known history? **Why is everyone doings things in order to be happy, but is never happy in continuity?**
 
-> What is the resolution that my family, humanity and I need? What is the Universal Order, in which humans can experience co-existential happiness, contentment, peace and bliss in continuity? 
+### The existential purpose (Religion) of Human Life is 
+* **To remember, study, understand and realise the nature of Self** - What am I? Why am I here? What is my biggest need, deepest desire and co-existential purpose?
+* **To become a master & knower of Existence** (Reality in form of interconnected and inseparable co-existence of all material and conscious nature submerged, soaked and encircled in *Void aka field, consciousness, zero point field, omnipotence*)
+* **Happiness, contentment, peace and bliss in Co-existence** (family, relationships, society, other life forms, living forms, air, water, natural resources on Earth)
 
-Are we (as my family and society) living in a beautiful and simple present? Are we sowing seeds for a better future for our children, whom we (believe to) love? Or are we sowing seeds of strife, unhappiness and unsustainability? *Are we sure we even realise what happiness, contentment, peace and bliss truly is?* 
+*We may have different viewpoints on nature of Self and reality, different skin color, occupations and opinions, but as humans we are all the same. Through honest objective and subjective inquiry humanity as society and each human is bound to understand and realise Truth in the same way, because Existence is absolute and universal. Our sameness as humans, the onlyness of Truth (Existence in which we co-exist), honest self inquiry for Truth, and agreement on the way to live, is the (only) unifying ground, which will provide Life the resolution it needs and seeks.* 
 
-> What is the right way to be and live? Does real and deep goodness in life experience, come from the body or the mind? Is it felt alone, or in context of co-existence only? 
+## The intention of project Lifemaker 
 
-Read more about such questions [here](/post/think-on-these-lines)
+Undivided society and enlightened order of living on Earth where there is
 
-## Lifemaker is about asking questions, finding answers and living together with resolution. Forever.
-If such thoughts intrigue you, please contact us through the [lifeline](/lifeline). 
+* **Co-existential living in perfect good for every family** 
+  * _Mental resolution with happiness_
+  * _Material abundance with contentment_
+  * _Mutual confidence (fearlessness) with peace_
+  * _Justful (mutually fulfilling) co-existence with bliss_
+* **Healthy Earth** rich with natural resources and fertile soil to feed everyone and fulfill justful
+needs
+* **Healthy air and water** for every inhabitant of Earth, to breath and drink well
 
-### The solution to all human problems is co-existential resolution, by the way of Self realisation and Universal wisdom
-#### Intention - A paradigm shift for each one of us and our families. For Good. 
-The intention of Lifemaker is to unite families across the Earth as an undivided society in Universal orderliness. The connecting thread is *objective* self inquiry into nature of Life (Self in human form) and Existence (as Co-existence); and an agreement on the right Way to be, and live. It is a vision for humanity to evolve and upkeep a holistic working model which ensures perfect co-existential bliss at all levels of society, forever, without any corruption by power or delusion. *We may have different viewpoints on nature of Self and reality, different skin color and occupations, but as humans we are all the same. Through honest self inquiry, each one is bound to arrive at the Truth which is Universal, one and only. Our sameness as humans, the onlyness of Truth (Existence in which we co-exist), honest self inquiry for realisation of the Truth, and agreement on the way to live, is the (only) unifying ground, which will provide us all round resolution we all seek.* 
 
 ## The Universal working model
 
@@ -34,19 +38,6 @@ The working model covers these five points for self sustainable families, societ
 * **Justice** - Universal values based code of conduct for mutual fulfillment. Constitution and laws for decentralised-local-global cooperation and decision making.
 
 ![image](/images/infographicLifemaker.png)
-
-## The outcome
-
-**As families from across the Earth realise and adopt the Universal way of being**, will be seen a generation to generation (tradition) based _continuity_ of
-
-* **All round wellbeing in self and undivided family, society, states and inter-state (United humane nation)** so that every level of society witnesses _Shubh_, which is 
-  * _All round resolution with happiness_
-  * _Abundance with contentment_
-  * _Mutual confidence (fearlessness) with peace_
-  * _Justful (mutually fulfilling) co-existence with bliss_
-* **Healthy Earth** rich with natural resources and fertile soil to feed everyone and fulfill justful
-needs
-* **Healthy air and water** for every inhabitant of Earth, to breath and drink well
 
 #### What is family?
 Generally speaking, a family, whether of blood or heart, is a group which is mutually committed to live and grow together with love and care, for lifetime of the body. Its members find themselves assured of safety, nutrition, mutual fulfillment, growth and happiness in their mutuality. *Family is the unit of society, which intrinsically serves the purpose of continuity of human seed in good health.* 
