@@ -40,7 +40,8 @@ The working model covers these five points for self sustainable families, societ
 ![image](/images/infographicLifemaker.png)
 
 #### What is family?
-Generally speaking, a family, whether of blood or heart, is a group which is mutually committed to live and grow together with love and care, for lifetime of the body. Its members find themselves assured of safety, nutrition, mutual fulfillment, growth and happiness in their mutuality. *Family is the unit of society, which intrinsically serves the purpose of continuity of human seed in good health.* 
+A group of people living together with strong bond of love and mutual confidence, feel assured of care, protection & nurture, expect happiness, peace, contentment & bliss with each other, share common vision, projects and intention for lifetime generally including raising children and are resolved and committed to make it happen.
+*Family is the unit of society and also serves the purpose of continuity of human seed.* 
 
 ## Call to the tribe
 
