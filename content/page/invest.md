@@ -4,6 +4,7 @@ date: 2018-04-14T12:15:26+05:30
 menu: main
 draft: false 
 ---
+
 Lifemaker is a by and for humanity project. *Our goal is taking Humanity to final stage of Evolution - realised collective consciousness and Value based sustainable Order.* For this big task to be accomplished, we need not only hard work and mind share from many, but also material and resource support, including funds. 
 
 We need funds for these immediate goals 

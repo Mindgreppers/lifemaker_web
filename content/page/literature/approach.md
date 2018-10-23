@@ -1,7 +1,6 @@
----
-title: "Approach"
+
+title: "Our approach in moving forward"
 date: 2018-03-17T16:02:06+05:30
-menu: main
 draft: false 
 ---
 
@@ -9,7 +8,7 @@ draft: false
   - Enlightened families in peaceful and justful co-existence, is healthy and happy Humanity in continuity
 - **Understanding of life/human/self, existence as co-existence and conduct of humaneness in an objective way**
   - This is a must for living the humane way
-  - Curious families will go through [Family education program](/model) and adopting the Value based living.
+  - Curious families will go through [Family education program](/literature/family-education) and adopting the Value based living.
   - We will do Existence based human centric contemplation. It will equip us with clarity for every dimension of our life. It is a resolution based understanding of our current personal, familial, social & ecological problems. 
   - We are drawing inspiration from [Co-existentialism](http://www.madhyastha-darshan.info) and all old philosophical traditions, relegions and spiritual teachings.
   - Those who have understood will naturally help others understand. 

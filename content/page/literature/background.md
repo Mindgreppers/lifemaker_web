@@ -1,13 +1,10 @@
 ---
-title: "Background"
+title: "Why Lifemaker"
 date: 2018-03-15T18:07:31+05:30
 draft: false 
-menu:
-  main:
-    name: Why
 ---
 
-**Happiness is our true nature. Every Human wants to be happy.** All prophets, relegions and philosophers have spoken the same truth in different ways. **And yet Humanity has evaded the light of happiness somehow.** Most of us are caught in a blind rush, desiring happiness from actions or objects, forgetting that it is available to everyone all the time. We are doing things in order to be happy, and not as beings of happiness. 
+**Happiness is our true nature. Every Human wants to be happy.** All prophets, relegions and philosophers have spoken the same truth in different ways. **And yet Humanity has evaded the light of happiness somehow.** Most of us are caught in a blind rush, desiring happiness from actions or objects but don't know answers to the what, why and how with stability and clarity. We have not been told so far that for happiness to happen in continuity for any family it needs mental resolution, material abundance, mutual trust/confidence and all-round fulfillment in relationships. We are doing things in order to be happy, and not as beings of happiness. 
 
 **Not attentive to the fact that in co-existence everything is connected as an indivisible whole, we feel separate.** We divide, compare, compete and fight. We dream the impossible - to gain happiness at the loss of other or the environment. Our current social order works by individualism and power, instead of Human, Social, Universal or Material values. **Our society and education prepares us to be sullen, selfish and overpowering machines, instead of spontaneously joyous and compassionate Humans.** The food we eat is poisonous. The news on TV is stressing or depressing. Our body or consciousness is not in a healthy state. Money or no money, *our families are breaking and individualism is sucking the joy and abundance out of life.* We are yet to realise what is meant to be a Human.
 
