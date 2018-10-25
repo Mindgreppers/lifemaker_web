@@ -16,5 +16,13 @@
       {{ end }}
     </ul>
   </div>
+  {{ range .Sections}}
+    <ul class='list'>
+	  <p>{{ .Title }}</p>
+      {{ range  .Pages }}
+        {{.Render "list-item"}}
+      {{ end }}
+    </ul>
+  {{end}}
 </div>
 
