@@ -14,7 +14,7 @@ weight: -270
 
 > Since family is the fundamental unit of co-existence, of societal organisation and of propogation of human seed, and the first and primary space for education and wellbeing of everyone, our approach is family based.
 
-The working model covers these five points for self-governed and self-sustainable families, society, states and inter-state in Universal orderliness: 
+The working model covers these five points for self-governed and self-sustainable families, villages, society, states and inter-state in Universal orderliness: 
 
 * **Education and research** - [Family education](/literature/family-education) and research, covering value based consciousness development (the foundation) and skills/knowledge useful for living.
 * **Health** - Healthy lifestyle and natural healing practices for both mind and body, so that every family and village is self empowered to heal.
