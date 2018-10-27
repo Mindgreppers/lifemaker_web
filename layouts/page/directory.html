@@ -18,11 +18,12 @@
   </div>
   {{ range .Sections}}
     <ul class='list'>
-	  <p>{{ .Title }}</p>
+	  <span><u>{{ .Title }}</u></span>
       {{ range  .Pages }}
         {{.Render "list-item"}}
       {{ end }}
     </ul>
+	</br>
   {{end}}
 </div>
 
