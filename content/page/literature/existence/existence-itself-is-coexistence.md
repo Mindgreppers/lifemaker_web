@@ -82,6 +82,8 @@ So then why does Life feel or act separate from the rest when in reality Life IS
 
 ### Contemplative meditation on co-existence
 
+_Contemplation is the doorway to meditation. Attention is the key. Meditation is the world of pure existence._
+
 > **In the Void, with rest of the co-existence, I am.**
 
-With your attention sticking to this statement for long enough see whether or not it makes you feel true connectedness with everything else. See if it makes you feel infinite just like the Void. See how it takes you to transcendence. See how it brings pure joy inside of you! :)
+With your attention on each word of this statement for long enough see whether or not it makes you feel true connectedness with everything else. See if it makes you feel infinite just like the Void. See how it takes you to transcendence. See how it brings pure joy inside of you! :)
