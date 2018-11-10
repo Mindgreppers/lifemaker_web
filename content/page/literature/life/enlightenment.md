@@ -1,7 +1,7 @@
 ---
 title: "Evolution process and evolution"
 date: 2018-11-04T18:50:29+05:30
-draft: false 
+draft: true 
 ---
 
 ### Every Life goes through a process of evolution culminating in full evolution

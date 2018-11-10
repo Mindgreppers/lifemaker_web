@@ -12,7 +12,10 @@
   <div class='archive-group sep-after'>
     <ul class='list'>
       {{ range  .Pages }}
-        {{.Render "list-item"}}
+	    {{if .Draft}}
+		{{ else }}
+          {{.Render "list-item"}}
+		{{ end }}
       {{ end }}
     </ul>
   </div>
@@ -20,7 +23,10 @@
     <ul class='list'>
 	  <span><u>{{ .Title }}</u></span>
       {{ range  .Pages }}
-        {{.Render "list-item"}}
+	    {{if .Draft}}
+	    {{ else }}
+          {{.Render "list-item"}}
+        {{ end }}
       {{ end }}
     </ul>
 	</br>

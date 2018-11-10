@@ -1,7 +1,7 @@
 ---
 title: "Evolution"
 date: 2018-10-29T15:07:36+05:30
-draft: false 
+draft: true 
 ---
 
 > Life - a conscious unit of energy like you, me and the one in ant form too - is headed on a journey of evolution. Life is like a river which is meant to fully realise its source, its destination, its Self and the oneness of all. Life is on a journey to realise how it is an inseparable part of all-that-is.
