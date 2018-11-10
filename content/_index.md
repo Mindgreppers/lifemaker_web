@@ -5,41 +5,34 @@ weight: -270
 ---
 
 
-## The tradition humanity needs and deserves
-* **Enlightened, undivided, self-sustained and self-governed families and human society** living in happy, satisfied, fearless and blissful co-existence with absolute mental resolution, material abundance, mutual trust & confidence and all-round fulfillment.
-* **Healthy Earth** rich with natural resources and fertile soil to feed everyone and fulfill justful needs
-* **Healthy air and water** for every inhabitant of Earth, to breath and drink well
+## The vision and aims of Lifemaker 
+* Undivided humane society in awakened co-existence fostering real happiness, contentment, peace and bliss in every family, across all future generations.
+* A universal values based System & Order that fosters self realisation & existential knowledge, mental clarity & resolution, material equality & abundance, mutual trust & confidence and justful co-existence in every family and the undivided society, on a continuous basis.
+* Human families living humanly in co-existence, with wisdom, love, responsibility, freedom, respect, equality, balance, cooperation and other such universal values, for the good of family, society and entire existence as co-existence of which every Life and every atom is an inseparable part.
+* Ensuring food, health, housing, clothing, education, purposeful travel, work opportunity and socio-economic equality for all families.
+* Healthy soil, air, water, forests & natural ecosystem for sustainability of humanity and all Life on Earth. 
 
-## The working model (how to be)
+## The five pronged working model (how to be)
 
 > Since family is the fundamental unit of co-existence, of societal organisation and of propogation of human seed, and the first and primary space for education and wellbeing of everyone, our approach is family based.
 
-The working model covers these five points for self-governed and self-sustainable families, villages, society, states and inter-state in Universal orderliness: 
+The working model covers these five points for self-governed and self-sustainable families organised as grassroots based cooperatives and self help groups to co-exist in Universal orderliness across villages, neighborhoods, provinces, nations and united-humane-nation. 
 
-* **Education and research** - [Family education](/literature/family-education) and research, covering value based consciousness development (the foundation) and skills/knowledge useful for living.
-* **Health** - Healthy lifestyle and natural healing practices for both mind and body, so that every family and village is self empowered to heal.
-* **Eco-production** - Universal values and local resources based production and services, that don't harm Earth, water, air, nature or any human.
-* **Exchange** - Need and giving based exchange (instead of desire or profit based). Families work to produce more than their needs, and thereby every family sustains as a giver and reciever of abundance.
-* **Justice** - Universal values based code of conduct for mutual fulfillment. Constitution and laws for decentralised-local-global cooperation and decision making.
+* **Education and research** - [Family education](/literature/family-education) and research, covering value based consciousness development (the foundation) and skills/knowledge useful for living so that every family lives in Budhdha consciousness, serves the co-existence in meaningful ways and is self reliant. 
+* **Health** - Healthy lifestyle, natural healing practices, affordable medicine and cure in every neighborhood so that every family and village is self empowered to live healthy in body & mind. Also global research, cooperation and hospitals for providing medicine and cure beyond the local scope.
+* **Eco-production, work and services** - Self-reliant families & neighborhoods producing in abundance through organic farming, cottage industry and with least dependency on heavy machinery or factories. Universal values and local resources based production, work and services in balance and symbiosis with nature and society. 
+* **Exchange and economics** - Giving and justice based exchange instead of self interest & maximisation of profit based mentality where every family sustains as a giver and reciever of abundance. Co-ownership and co-management of resources, food storage, banking, barter & exchange markets as self help groups and cooperative societies organised from village (local) to united-humane-nation (global) levels, to fulfill every family's living needs as locally as possible while ensuring global cooperation and collaboration.
+* **Justice and governance** - Universal values based constitution, code of conduct and laws for decentralised self-governance, collaboration and consensual decision making, as undivided human society organised from village to united-humane-nation levels. To evolve and upkeep mechanisms which ensure justful, truthful and humane social environment within participating families and to strive for the same for all humanity. 
 
 ![image](/images/infographicLifemaker.png)
 
 #### What is family?
 A group of people living together with strong bond of love and mutual confidence, feel assured of care, protection & nurture, expect happiness, peace, contentment & bliss with each other, share common vision, projects and intention for lifetime (like raising children) and are resolved and committed to make it happen.
 
-## Feel free to reach out to us anytime, for anything 
-
-> Our contact details are on the left side menu of your desktop screen or the hamburger menu of your phone screen.
-
-#### We will do the best we can, for you
-* Help you develop an objective and experiential understanding of Existence and Co-existence as-it-is; and the solution to all our problems.
-* Help you in any way we can 
-
-#### You can do the best you can for yourself, your family, humanity and all Life
-* We welcome any advice or help in any form whether material, mental or spiritual.
-* You are welcome to visit us and stay with us
-* We love the presence of positive energy and inquisitive people 
-* If you can teach anything to us even better!
+#### Support and join the cause
+* We love the presence of positive energy and inquisitive people who wish to collaborate on the cause of human upliftment, consciousness evolution and wellbeng of all. 
+* We welcome advice or help in any form whether material, mental or spiritual.
+* If you are curious to interact with us then please get in touch. 
 
 ### The existential purpose of every Life and especially human Life is 
 * **To remember, study, understand and realise the nature of Self** - What am I? Why am I here? What is my biggest need, deepest desire and co-existential purpose?

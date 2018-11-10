@@ -47,25 +47,6 @@ Matter is manifested energy condensed together. All matter in nature exists in t
 - living matter composed of inert matter, like plants, bacteria, animal body, human body or another kind of body. All living bodies ingest, transform, use and expel energy (metabolism). Living matter grows.
 - Conscious matter (Life) like you, me all humans and animals which inhabit some body with a brain, senses and nervous system. Life co-exists with a body. It desires, thinks, learns in one lifetime, does things consciously.
 
-### Life: the conscious observer and experiencer of existence
-The real you and real me must be made of the same fabric from which entire existence is made - energy. Hence, we are but energy which has become conscious of its presence in existence. 
-
-> We are but conscious energy. We are but waves or disturbance in some fields such that we exhibit active consciousness unlike physical matter.
-
-_"I am indestructible and indivisible."_ There is a long philosophical debate on this since ages. Philosophy and science serves the purpose to the extent of helping intellectualise and contemplate. Since mind is part of the Self it can not realise the nature by itself as it is part of the whole. Only the whole can realise the nature of the whole. When meditation happens after due contemplation answers are revealed and realised by the whole self.
-
-Manifest energy constantly undergoes development, shifting through infinite forms, combinations and permutations in the pursuit of equilibrium and permanence. If one wonders about origin of one's own self it dawns upon that 
-
-- Our origin must start from manifested energy taking a certain _form_ which allows for it to become conscious of its presence in the Void. There must be some moment in which a unit of energy undergoes a change in its manifestation from inert physical energy to conscious energy. From being physical atoms or free flowing energy, it shifts to being another kind of _atom_ with a unique constitution not exhibited in inert matter atoms.
-
-- It enjoys freedom from physical forces like electromagnetism, gravity etc. because desires and thoughts are not _governed_ by physical fields. We have power of control over them irrespective of the physical forces surrounding us. Even if my body has had lot of alcohol I percieve its effect but _I can_ control how I think.
-
-- Conscious energy can exert control over material energy. We are connected with a body (gross physical, subtle energetic, more subtle mental & most subtle causal) with which we do things and we percieve the world. Hence whatever Life is, it can connect with and affect matter and energy in physical fields through its body. Life is found to co-exist with the body. Upon contemplation it is revealed that Life can do nothing without a body. It always needs a body. So it must be so that Life (consciously or subconsciously) assembles a body instantaneously at its birth and thereafter, upon discarding bodies it doesn't need anymore. 
-
-- With formation of a unit of Life that part of infinite manifest energy ends its journey of aeons of material development. It becomes _developed_. It finds its constitutional completeness as a unit of matter. From there it starts on another journey, possibly spanning aeons again. That journey is of _evolution or growth_. That journey is about discovery of knowledge and finding the equilibrium within. Once that happens, existence reaches the pinnacle of its development and evolution through that fully developed and evolved unit of energy. That itself is awakening, enlightenment or liberation.
-
-Life can also be called a [conscious atom](/literature/consciou-atom). It is a mere choice of words. But the constitution of that conscious atom is the fundamental constitution of the real you and the real me.
-
 ## Co-existence
 
 > Existence itself is co-existence. When seen and analysed as constituent parts existence appears as co-existence. In reality, all is one and only. That one and only is existence itself.
@@ -82,8 +63,9 @@ So then why does Life feel or act separate from the rest when in reality Life IS
 
 ### Contemplative meditation on co-existence
 
-_Contemplation is the doorway to meditation. Attention is the key. Meditation is the world of pure existence._
+_Meditation is the world of pure existence. Contemplation is the doorway to meditation. Attention is the key._
 
 > **In the Void, with rest of the co-existence, I am.**
 
 With your attention on each word of this statement for long enough see whether or not it makes you feel true connectedness with everything else. See if it makes you feel infinite just like the Void. See how it takes you to transcendence. See how it brings pure joy inside of you! :)
+
