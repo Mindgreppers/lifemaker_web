@@ -4,26 +4,44 @@ date: 2018-10-29T14:20:42+05:30
 draft: false 
 ---
 
-## Life: the conscious seer and experiencer of existence
+## A Life is a conscious experiencer and doer in existence
 
-> The real you and real me must be made of the same fabric from which entire existence is made - energy. Hence, we are but a-unit-of-energy which has become conscious of its presence in existence and is experiencing, learning and interacting with the existence consciously.
+You and I are units of Life each. So is every human and animal on Earth which has a brain, nervous system, at least two senses and can learn and evolve within one lifetime.
 
-There are three kinds of truth sets that exist in regard to nature of Self in humans.
+Animals don't and generally can't think about the nature of Self but humans can and they do. A human has full faculty to grasp the knowledge of Self and Existence and make good use of it. This capability puts humans uniquely in the bucket of Knowledge Order on Earth and its Dharama is _to be, to grow, will to live and be happy, peaceful, content and blissful in co-existence_. Animals come in the animal order whose Dharma is _to be, to grow and will to live_. Then the lower two orders are Living Order like plants and microbes whose Dharma is _to be & to grow_, and the Material Order whose Dharma is _to be_.
 
-- A. I am eternal, indestructible & indivisible unit-of-energy which has become conscious of its presence in Existence and is on the journey of remembering what it is and all-that-is.
-- B. I am the body or a byproduct (epiphenonmenon) of the body. My consciousness is a collective phenomenon of the trillions of unconscious cells that make my body, nervous system and brain.
-- C. I don't know.
+## So technically who am I?
+
+There are three broad kind of truth sets that exist in regard to nature of Self in humans.
+
+- A. The oldest perspective has been that "I am eternal, indestructible & indivisible unit-of-energy which has become conscious of its presence in Existence and is on the journey of remembering what it truly is, as part of all-that-is (Existence)."
+- B. The recently emerged materialistic perspective is "I am the body or a byproduct (epiphenonmenon or emergence) from the body. My consciousness is a collective phenomenon of the trillions of unconscious cells that make my body, nervous system and brain."
+- C. This is also perhaps one of the oldest perspectives and is also a good place to be at for the curious inquisitor - "I don't know."
+
+## The take at Lifemaker
+
+The foundation team at Lifemake sincerely believes in Point A, based on their experience and understanding.
+
+> The real you and real me must be made of the same fabric from which entire existence is made - energy. Hence, we are but a-unit-of-energy which has become conscious of its presence in existence and is experiencing, learning and interacting with the existence consciously. And, this unit is indestructible, indivisible, permanent and co-exists with some body or another at any point in the _here and now_.
 
 The belief in eternal nature of Self or Life (Truth set A) is a foundational stance of Lifemaker. There is a long standing philosophical debate on this since ages between spiritualists and materialists - whether a unit of Life is an epiphenomenon of body and ends with it, or is Life immortal?
 
-There is enough evidence in history and in modern context too, that the ones who truly and really believe in immortality of the Self and live as that consistently demonstrate greater humane nature than the ones who believe they are the body or from the body. All the greatest humans ever known who served humanity selflessly believed themselves not to be the body or from the body. This has been consistently a central point of their teachings as well. 
+> The closer someone is to truth, the more use they find of it in their lives
 
-If knowledge is wisdom and wisdom is humaneness then the knowledge Budhdha, Jesus and the likes of them carried surely made them the most humane people we have ever heard about. And even in my common experience in this lifetime, the ones who are truly sincerely spiritual are the most humane breed of humans I have met, judging by their selfless actions and behavior. I believe their truth is useful for them and co-existence. Yet, in existence, infinite Lives live with their [own perspective of reality](/7-billion-people.-7-billion-truth-sets) and they are all welcome. In the end, whichever is the seer's truth, [must be useful to them and the world.](/the-job-of-any-truth-set-is-to-be-useful). At Lifemaker while we believe in the eternal nature of Life, we welcome and include any participant from materialistic point of view to be part of undivided humane society. In the end, whatever our belief in this matter if we are able to exhibit humane conduct in all conditions and situations we are meant to work and be together.
+### So how does a Life know whether its truth set is useful to it?
+
+> Usefulness means actions and experiences that are good, positive, constructive and beneficial not just for the Self but for entire co-existence. The measure of usefulness is lesser strife & suffering and greater happiness, peace, ease, contentment and bliss with anyone and everyone.
+
+There is enough evidence in history and in modern context too, that the ones who truly and really believe in immortality of the Self and live as that consistently, demonstrate greater humane nature than the ones who believe they are the body or from the body. All the greatest humans ever known who served others selflessly and fearlessly believed themselves not to be the body or from the body. They believed themselves to be an inseparable and eternal part of All-that-is. This has been consistently a central point of their teachings as well. 
+
+If real knowledge is wisdom and wisdom is humaneness then in spirit of scientific inquiry, let us see and evaluate which truth set consistently demonstrates greater wisdom and goodness in their living. On observation, survey and study it is amply clear that the knowledge the kinds of Budhdha, Jesus and the likes of them in past or present carry must be more real than materialists as it made them the most humane people we have ever heard about - much more than any materialist human being we have ever known. Judging by the presence, actions, work, behavior and thoughts, it can be easily surveyed and found that the ones who are with Truth Set A demonstrate a greater humane conduct on day to day basis, in exceptional situations and all throughout their lifetimes, than the ones who side with materialistic point of view. The immortal ones in my experience and research are the most humane breed of humans I have ever met. Given the consistent demonstration of all round goodness in such lives, we can say that truth set A is a clear winner on all accords.
+
+Yet, in existence, infinite Lives live with their [own perspective of reality](/7-billion-people.-7-billion-truth-sets) and they are all welcome. In the end, whichever is the seer's truth, [must be useful to them and the world.](/the-job-of-any-truth-set-is-to-be-useful). At Lifemaker while we believe in the eternal nature of Life, we welcome and include any participant from materialistic point of view to be part of undivided humane society. In the end, whatever our belief in this matter if we are able to exhibit humane conduct in all conditions and situations we are meant to work and be together. In that case, whatever truth set we hold individually is serving us well. The only thing to be seen is to find a _consistency_ of demonstration of usefulness in lifetime of any person holding materialist point of view stating "I am the body or from the body and I start and end with it"
 
 ###### So how to be sure whatever you know or think you know is really true? 
 
 - Your truth set must be [useful to your existence in co-existence](/the-job-of-any-truth-set-is-to-be-useful) as explained in another chapter. In short, by being useful, your truthset should have a measurably positive and stable affect on you, your relationships and the world you live in. Not only the world around you but also your own heart will attest to the goodness you feel within and spread without on a day to day, hour to hour, minute to minute, second to second basis.
-- Only the whole of the conscious you can know the whole of you, so your heart and your mind have to attest to the truth.
+- [Only the whole of Self can know the whole of Self](/only-the-whole), so your heart and your mind, both, have to attest to the truth.
 
 ###### So what is the whole of you as a human?
 
@@ -33,34 +51,12 @@ No matter what is your belief system we can agree that broadly your existence as
 - The mind which desires, thinks, hopes, compares, analyses, evaluates, makes choices, tastes the outcomes and learns.
 - The center (heart, soul) whose role is _experiencing_ everything including the mind. It is the screen which is blank in deep sleep and on which everything appears in dreaming or awake state. This part is the deepest part which not only experiences but is the very source of all your expression. Haven't you ever experienced "Singing from the heart or expressing from the heart"?
 
-###### Only the whole can realise the nature of the whole
-
-Only together, the mind and soul can together and not alone, truly realise any part of reality. Haven't you ever experienced knowing something so surely that you don't even need to think about it. Your heart 'feels and knows'. Your mind tries to comprehend how what-you-know by heart makes sense. For example, knowing that your father is about to arrive in five minutes even though you can't explain how and why you know it? Sometimes a logical reasoning or intellectually sounding argument doesn't dawn upon immediately. But from the depths of your heart you know what-is and the deepest part of your mind feels fully committed to go by your heart's knowledge and belief. Haven't you ever experienced this? 
-
-But of course in order for your knowledge to be full and absolute, the mind also needs to comprehend what you know because it is an inseparable part of your existence. Only the whole of your existence is needed to understand the whole of your existence. 
-
-The trouble starts that most of humanity uses only half of their capability. They use only the superficial parts of their mind, never reaching the deepest part of the Self, to contemplate, understand and realise reality. Their approach is limited to thinking, comparison, analysis, visualisation. Contemplation and total comprehension by mind rarely happens. The heart is even less touched upon.
-
-_In this chapter we will not try to convince anyone of reality. Our intention is to simply make you think on certain things._
-
-###### Mind, Soul and knowledge
-
-Now, I would like to talk a little about the necessity and also the limit of intellectual argumentation. It is important to realise the usefulness and as well the limitation of the mind. Philosophy and science serve a useful purpose by helping intellectualise and contemplate upon Self and Existence. But since mind is only a part of the Self, it can not realise the nature of the whole Self by itself. By the same virtue of being part of the whole Self, mind is also necessarily required for full realisation. **Only the whole can realise the nature of the whole** of which the mind is a part. Hence philosophy, science, maths and physics as tools are useful and necessary too, but they are not enough alone nor are they absolute as they are tools of the mind only. 
-
-> There is something deeper than the mind - it is that part of the Self which is _'experiencing'_ everything - the body, the world, the mind and even itself. This is the part which is experiencing the deep sleep and as well the dreams and awake experience. This is the part from which the mind emerges. This part is the mediating activity between rest of co-existence and the mind. It is the screen upon which all perception and mental activity takes place. We can call it the soul or the heart or the center of Self. Heart is the deepest part of the Self. The heart is the experiencer, the observer, the expressor. 
-
-Till the heart has not realised the nature of existence and experienced the bliss of knowledge, everything is mere mental concept & information and not true knowledge. Till the soul is not fully realised Life does not experience peace, contentment and bliss, and does not exhibit consistency of 'moral' living, positivism and inspiration in continuity. It is not able to do what it feels is right. There is conflict both inside and in relationship with the world.
-
-When realisation of nature of Self and existence as co-existence happens, it is felt by all the layers of the mind and right through to the heart. In that moment the whole of Self knows, that it knows. And there is bliss! The attestation by the heart is joined by full mental clarity and resolution. When the heart knows and the mind understands, there is no scope of any doubt left whatsoever. When the heart is realised as well the mind has full comprehension of the realisation, Life has achieved its full evolution. There is eternal happiness, peace, contentment and bliss because the mind is fully resolved for permanence and all unecessary desires, hopes and thoughts have come to an end for good. There is stability in thought, work and behavior. Full realisation is the end of all conflict and suffering. It is the beginning of an eternal status of pure blissful existence and co-existence. 
-
-> Full realisation of all-that-is is Budhahood and only the whole of the Self (the soul and the mind together) can reaise the whole of the Self and its inseparable relationship with the whole of Existence.
-
-### Coming back to: What am I? 
+### Human is body with Life. Life is what senses and feels the "I". _Life is the I_. 
 
 > I am an eternal, indestructible and indivisible spec of energy existing in [all-that-is](/existence-itself-is-coexistence). All-that-is is made of one fabric only - of infinite energy. All is one-&-only and I am a part of it.
 I am a wave of energy swimming in the infinite sea of energy with other waves. All is one-&-only. I exist, intricately connected with a body to experience the sea and express itself as part of the sea. The substance that constitutes me is the same substance that constitutes every particle, wave or life in existence. The same substance that is manifesting as 'others' is manifesting as 'me'. All is the one infinite sea. I am an an inseparable part of it.  
 
-For knowing Life's origin and nature we will have to observe and contemplate about the nature of energy. 
+For knowing Life's origin and nature we will have to observe and contemplate about the nature of energy and the journey in which all the infinite energy of existence is participating. 
 
 ### The journey of energy
 
