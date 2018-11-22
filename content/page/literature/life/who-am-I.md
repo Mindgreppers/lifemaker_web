@@ -3,126 +3,62 @@ title: "Who Am I"
 date: 2018-10-29T14:20:42+05:30
 draft: false 
 ---
+## I am eternal, infinite, omnipresent, omnipotent. I am inseparable, indivisible & all-that-is. I am Existence.
 
-## A Life is a conscious experiencer and doer in existence
+#### I am eternal Existence experiencing itself as Life, right here right now
 
-You and I are units of Life each. So is every human and animal on Earth which has a brain, nervous system, at least two senses and can learn and evolve within one lifetime.
+**_As Life_** the little me is consciously experiencing the BIG ME (Existence itself). Existence is the FUNDAMENTAL ME. I am present here in the human form as a unique expression of the BIG ME. 
 
-Animals don't and generally can't think about the nature of Self but humans can and they do. A human has full faculty to grasp the knowledge of Self and Existence and make good use of it. This capability puts humans uniquely in the bucket of Knowledge Order on Earth and its Dharama is _to be, to grow, will to live and be happy, peaceful, content and blissful in co-existence_. Animals come in the animal order whose Dharma is _to be, to grow and will to live_. Then the lower two orders are Living Order like plants and microbes whose Dharma is _to be & to grow_, and the Material Order whose Dharma is _to be_.
+> The "I" I sense, feel and live as is a Life. Life is what senses, feels and lives as the I. _Life is the phenomenon called I_. 
+
+You and I are units of Life each. So is every human and animal on Earth which has a brain, nervous system, at least two senses and can learn and evolve within one lifetime. It is also possible that Life exists in infinite forms in other realms which are not as densely physical and bio-organic as Earth. Here we will focus on Earth and on our existence on Earth in human form _right here, right now_.
+
+Animals don't and generally can't think about the nature of Life but humans can and they do. Life in human form has the full capability and can develop the ability to grasp the knowledge of Life and Existence and thereby live blissfully. This capability puts humans uniquely in the bucket of Knowledge Order on Earth and its Dharama is _to be, to grow, will to live and be happy, peaceful, content and blissful in co-existence_. Animals come in the animal order whose Dharma is _to be, to grow and will to live_. Then the lower two orders are Living Order like plants and microbes whose Dharma is _to be & to grow_, and the Material Order whose Dharma is simply - _to be_. Every order includes and is built upon the lower order.
 
 ## So technically who am I?
 
-There are three broad kind of truth sets that exist in regard to nature of Self in humans.
+There are three broad kind of truth sets that exist with regard to nature of Self in humanity on Earth.
 
-- A. The oldest perspective has been that "I am eternal, indestructible & indivisible unit-of-energy which has become conscious of its presence in Existence and is on the journey of remembering what it truly is, as part of all-that-is (Existence)."
-- B. The recently emerged materialistic perspective is "I am the body or a byproduct (epiphenonmenon or emergence) from the body. My consciousness is a collective phenomenon of the trillions of unconscious cells that make my body, nervous system and brain."
-- C. This is also perhaps one of the oldest perspectives and is also a good place to be at for the curious inquisitor - "I don't know."
+- A. The oldest perspective has been that "I am eternal & indestructible. I change bodies like clothes."
+- B. The recently emerged materialistic perspective is "I am from the body and hence mortal. I am the body or a byproduct (epiphenonmenon or emergence) of the body. My consciousness is a collective phenomenon emergent from collaboration of the trillions of unconscious cells that make my body, nervous system and brain."
+- C. This is also perhaps one of the oldest perspectives and is also a good place to be at for the curious inquisitor - "I don't know. And perhaps, it doesn't matter whether I am mortal or not."
 
-## The take at Lifemaker
+## The take at Lifemaker is integration of all perspectives into a shared perspective agreeable to all
 
-The foundation team at Lifemake sincerely believes in Point A, based on their experience and understanding.
+Let us be honest with each other and admit that as humanity our perspective on this issue differs from one to another and this is a matter of personal faith and subjective experience. There is no objective way to prove one point or the other so that everyone is convinced of the same truth just like we are convinced that the Sun rises in the East. Speaking from perspective of entire humanity - "We don't know in unity the exact nature of Life & especially whether Life (Self) is mortal or immortal."
 
-> The real you and real me must be made of the same fabric from which entire existence is made - energy. Hence, we are but a-unit-of-energy which has become conscious of its presence in existence and is experiencing, learning and interacting with the existence consciously. And, this unit is indestructible, indivisible, permanent and co-exists with some body or another at any point in the _here and now_.
-
-The belief in eternal nature of Self or Life (Truth set A) is a foundational stance of Lifemaker. There is a long standing philosophical debate on this since ages between spiritualists and materialists - whether a unit of Life is an epiphenomenon of body and ends with it, or is Life immortal?
-
-> The closer someone is to truth, the more use they find of it in their lives
-
-### So how does a Life know whether its truth set is useful to it?
+So given the divergence in perspectives on eternal nature of individual consciousness, what is the ultimate truth on which humanity can converge? We can say that whatever is that statement of truth, it [must be useful to us.](/the-job-of-any-truth-set-is-to-be-useful)
 
 > Usefulness means actions and experiences that are good, positive, constructive and beneficial not just for the Self but for entire co-existence. The measure of usefulness is lesser strife & suffering and greater happiness, peace, ease, contentment and bliss with anyone and everyone.
 
-There is enough evidence in history and in modern context too, that the ones who truly and really believe in immortality of the Self and live as that consistently, demonstrate greater humane nature than the ones who believe they are the body or from the body. All the greatest humans ever known who served others selflessly and fearlessly believed themselves not to be the body or from the body. They believed themselves to be an inseparable and eternal part of All-that-is. This has been consistently a central point of their teachings as well. 
+There are seven billion people and [seven billion truth sets.](/7-billion-people.-7-billion-truth-sets). Which is the one statement of Truth that we can all, theists and atheists, literate or illiterate, rich or poor, religious or scientific minded, can agree on? What is that one perspective which is easiest and simplest for any human to accept and converge at?  
 
-If real knowledge is wisdom and wisdom is humaneness then in spirit of scientific inquiry, let us see and evaluate which truth set consistently demonstrates greater wisdom and goodness in their living. On observation, survey and study it is amply clear that the knowledge the kinds of Budhdha, Jesus and the likes of them in past or present carry must be more real than materialists as it made them the most humane people we have ever heard about - much more than any materialist human being we have ever known. Judging by the presence, actions, work, behavior and thoughts, it can be easily surveyed and found that the ones who are with Truth Set A demonstrate a greater humane conduct on day to day basis, in exceptional situations and all throughout their lifetimes, than the ones who side with materialistic point of view. The immortal ones in my experience and research are the most humane breed of humans I have ever met. Given the consistent demonstration of all round goodness in such lives, we can say that truth set A is a clear winner on all accords.
+## All is one & only and one & only is all that is. Hence whosoever I am, I am an inseparable part and expression of Existence itself - the one & only. The real I is Existence itself!
 
-Yet, in existence, infinite Lives live with their [own perspective of reality](/7-billion-people.-7-billion-truth-sets) and they are all welcome. In the end, whichever is the seer's truth, [must be useful to them and the world.](/the-job-of-any-truth-set-is-to-be-useful). At Lifemaker while we believe in the eternal nature of Life, we welcome and include any participant from materialistic point of view to be part of undivided humane society. In the end, whatever our belief in this matter if we are able to exhibit humane conduct in all conditions and situations we are meant to work and be together. In that case, whatever truth set we hold individually is serving us well. The only thing to be seen is to find a _consistency_ of demonstration of usefulness in lifetime of any person holding materialist point of view stating "I am the body or from the body and I start and end with it"
+The fundamental truth on which every thinking human can agree is that _since we exist in Existence, the real you and real me must be made of the same fabric from which entire Existence is made. And that fabric is energy itself. Hence, each Life is but a-unit-of-energy, a part of Existence_, which has become conscious of itself and is experiencing, learning and interacting with the Existence (itself) consciously. 
 
-###### So how to be sure whatever you know or think you know is really true? 
+> The little I (Life) is an _inseparable constituent part_ of the BIG I (Existence) which is [all-that-is and one-&-only](/existence-itself-is-coexistence). 
 
-- Your truth set must be [useful to your existence in co-existence](/the-job-of-any-truth-set-is-to-be-useful) as explained in another chapter. In short, by being useful, your truthset should have a measurably positive and stable affect on you, your relationships and the world you live in. Not only the world around you but also your own heart will attest to the goodness you feel within and spread without on a day to day, hour to hour, minute to minute, second to second basis.
-- [Only the whole of Self can know the whole of Self](/only-the-whole), so your heart and your mind, both, have to attest to the truth.
+## Existence contains nature both material and conscious. Life is a conscious unit of energy, present in nature.
 
-###### So what is the whole of you as a human?
+A unit of Life and also every atom or free energy is like a wave of energy swimming in the infinite sea of energy with other waves - all intricately connected and affecting all the rest - together, an inseparable ONE THING. Life exists intricately connected with the rest and with a body to experience the sea and express itself as part of the sea. The substance that constitutes any Life is the same substance that constitutes every particle, wave or Life in Existence. The same substance that is manifesting as 'others' or 'rest of Existence' whether material or conscious, is manifesting as 'me'. All is one infinite sea of which every part is inseparably connected to all other parts. Every atom and every Life affects the rest of infinite Existence and is in turn affected by the entirety of the rest of it. Even science attests to this fact.
 
-No matter what is your belief system we can agree that broadly your existence as a human is of three parts.
+_Given that we can agree on the fundamental truth of Oneness, there is another truth secondary from that on which it is not so hard to agree either._
 
-- The body which is operated by the mind, through which mind percieves the world and also acts in the world. This is made of trillions of unconscious cells which constitute the nervous system, brain and rest of the body.
-- The mind which desires, thinks, hopes, compares, analyses, evaluates, makes choices, tastes the outcomes and learns.
-- The center (heart, soul) whose role is _experiencing_ everything including the mind. It is the screen which is blank in deep sleep and on which everything appears in dreaming or awake state. This part is the deepest part which not only experiences but is the very source of all your expression. Haven't you ever experienced "Singing from the heart or expressing from the heart"?
+### What is a human?
 
-### Human is body with Life. Life is what senses and feels the "I". _Life is the I_. 
+> A human is Life with a human body.
 
-> I am an eternal, indestructible and indivisible spec of energy existing in [all-that-is](/existence-itself-is-coexistence). All-that-is is made of one fabric only - of infinite energy. All is one-&-only and I am a part of it.
-I am a wave of energy swimming in the infinite sea of energy with other waves. All is one-&-only. I exist, intricately connected with a body to experience the sea and express itself as part of the sea. The substance that constitutes me is the same substance that constitutes every particle, wave or life in existence. The same substance that is manifesting as 'others' is manifesting as 'me'. All is the one infinite sea. I am an an inseparable part of it.  
+No matter what is your belief system we can agree that broadly your existence as a human is of two parts.
 
-For knowing Life's origin and nature we will have to observe and contemplate about the nature of energy and the journey in which all the infinite energy of existence is participating. 
+- **The body** which is operated by the mind, through which mind percieves the world and also acts in the world. On Earth, the body is made of bio-organic matter. A human body is made of trillions of unconscious cells which constitute the nervous system, brain and rest of the body, and together they act as a vessel for consciousness.
+- **Life**, which has a soul and a mind 
+  - **The mind** which desires, visualises, contemplats, thinks, compares, analyses, hopes, makes choices, tastes the outcomes, comprehends reality, learns and makes resolve. It senses through the body, percieves the body & the world (through the body) and gives direction to the body to act in the world for living & fulfillment of desires, hopes, intentions and resolution.
+  - **The soul or the heart**  is the seat of Consciousness in Self. It is the causal constituent part of Self and is the master of the mind (albeit passively in unevolved Life and actively in evolved Life). Soul is more fundamental to the mind. The soul is the manifested activity of unmanifest, primordial universal Consciousness. Soul has two functions.
+      - **It _experiences_** the mind, body and the world. Soul is the screen on which all experience happens. This screen is blank in deep sleep and in dreaming or awake state, is filled with the experience of perception of the body/world by the mind, and the activity/state of the mind.  
+      - **It _expresses** or acts_ through the mind in order to experience. It is the causal source of all expression and activity. 
 
-### The journey of energy
-
-> Existence is not aimless. Every atom is self inspired and imbued with purpose. Every ounce of energy is undergoing through a unidirectional progression of development progress, development, evolution progress and evolution. 
-
-#### 1. Development process
-
-##### Energy that is not stably in equilibrium seeks stability of equilibrium.
-
-> There are three kinds of activities of energy - making, breaking and balance (or stability).
-
-_Please pay attention to this and contemplate for a while - The Space is energy in all-round equilibrium. Manifest energy is the energy which is not in equilibrium and is seeking the same. Manifest energy exists inseparably within the Space. Manifest energy is but the Nature itself and it is forever transient, **seeking stable equilibrium to be just like the silent Space within which it is contained**. Observe how energy flows from one form to another - from the rays of the sun to the food that you eat to the energy you expend in walking and that expended energy in walking converts to some other form of energy in an infinite flow. Once a unit of energy finds the stable equilibrium within - for example an atom, it stays compacted forever unless destroyed by external energy. **The atom likes to exist stably just like how it is**, even though it may move from here to there as part of a larger macro current (For example, atoms in the air or water). The pursuit to exist stably can be observed even in biological world as the innate drive of any species to adopt and strive for greater chances of survival._ 
-
-This process of energy's pursual for stable forms and thereby engaging in compositions, temporary equilibriums and decompositions, can be called **development progress** wherein energy is seeking to develop into forms that stay stable (i.e. permanent). The tendency of energy (existence) to move towards and stay in stabile equilibrium is even recognised in science as second law of thermodynamics. We can also attest from our human experience that it is good to be in "balance". As humans we also prefer permanent solution to our needs over temporary ones. **Need for permanent balance (stability) is an innate drive of nature both material and conscious.** 
-
-And what is development? Let's look next.
-
-#### 2. Development 
-##### Birth of Life itself is development of energy. 
-
-A unit of energy finally developing into a permanently stable (eternally existing) form is being called development. 
-
-> Energy keeps on constituting and spilliting from various forms seeking stability of equilibrium, to ultimately reach a form which is stable and where the form's destruction is not possible no matter how strong the external forces. That type of unit of energy is Life, is akin to a conscious atom. It is what you and I are. We are permanent, indestructible and indivisible unit of energy.
-
-Energy indeed achieves permanence as-a-constitutional-form when a unit of Life is born. Becoming a conscious bundle (atom or whatever you would like to name it) is the end of aeons of development process where energy comes together as an indestructible unit (Life). All ancient spiritual wisdom and for any human, a personal spiritual insight comes with the same realisational knowledge. 
-
-_**I am. I am eternal. I am not this body. I am with this body.**_
-
-Here are some points to think about Life, about yourself, your origin.
-
-- Birth of Life is the final act of composition by a certain bundle of energy towards eternal permanence of its existence as that unit. After this composition, there is no decomposition of that composition of energy. This is the culmination of development process which that bundle of energy went through as free energy or as part of different atoms and molecules.
-
-- The conscious atom (Life) has a certain _form and internal arrangement_ which allows it to be conscious of its existence in the [co-existence](/existence-itself-is-coexistence). At the moment of birth of Life, energy undergoes a change in its manifestation from inert physical energy which operates in the physical fields known to science like electromagnetic, gravitational, quantum fields etc., to conscious energy which operates on some transcendental fields of consciousness yet to be discovered by science (or most probably never will). From being physical atoms or free flowing energy, energy shifts to being another kind of _atom or unit of energy_ with a unique constitution that exhibits self consciousness and the ability to think, desire, hope, analyse, contemplate etc. _as an "I"_.
-
-- Life is weightless as can be seen by weightlessness of thoughts, desires and hopes.
-
-- Life enjoys freedom from physical forces like electromagnetism, gravity etc. It is pretty evident as desires and thoughts are not _governed_ by physical fields like gravity. We have power of control over our thoughts irrespective of the physical forces surrounding us. Even if my body has had lot of alcohol I percieve its effect but I always have _the potential_ to control how I think.
-  
-- Life is govered by the force of desire. Every desire is somewhere rooted in the pursuit of the deepest desire of _happiness, peace, contentment and bliss_ which is the same across every life. Even in animals but fully so in humans. 
-
-- Life can consciously affect any part of the infinite existence. The extent of the effect is not limited or affected by distance. For example, affecting the thoughts of each other or listening to each other from thousands of kilometers apart. Inert atoms or big objects like Earth also affect entire existence through different fields like electromagnetic or gravitational fields, but the effect diminishes based on distance.
-
-- Conscious energy can exert control over material energy. We are connected with a body (gross physical, subtle energetic, more subtle mental & most subtle causal) with which we do things and we percieve the world. Hence whatever Life is, it can connect with and affect matter and energy in physical fields through its body. Life is found to co-exist with the body. Upon contemplation it is revealed that Life can do nothing without a body. It always needs a body and always has one, whether physical, subtle or causal.  
+> The mind and soul together (and inseparably) constitute Life. The body is the vehicle for Life to experience, learn and express (act) in Existence. A human is Life with a human body.
 
 
-#### 3. Evolution progress
-##### Learning is evolution. The gradual realisation of true nature of Self and Existence, finding wisdom and increasing freedom from desires and aversions is evolution progress.
 
-- With formation of a unit of Life that part of infinite manifest energy ends its journey of aeons of material development. It becomes _developed_. It finds its constitutional completeness as a unit of matter. From there it starts on another journey, possibly spanning aeons again. That journey is of _evolution progress or growth_. That journey is about discovery of own Self and finding the equilibrium within.
-- This stage is what all of animal kingdom and most of humanity on Earth is going through. We are all on journey of evolution progress. We are all here to experience certain experiences very important and desirable to our causal Self and we are doing the same. As we gain more experience, we learn. As we learn, we evolve. 
-- In this stage the perspective of Life evolves from personal like-benefit-profit to justice-dharma-truth. One evolves from being 'selfish' to 'selfless'. One is on journey from being a limited individual being feeling separate from rest of co-existence, to a universal co-existential being realising more and more the infinite and eternal nature of consciousness and the oneness and onlyness of all-that-is.
-- As one learns more and more about the nature of Self and Existence, one finds greater harmony within and with the world. There is greater repitition of joy, heightened awareness and rightful conduct, action, work and behavior.
-
-#### 4. Evolution
-##### Full and final awakening, in continuity & for eternity is evolution. A part of the infinite existence achieves the final stage of development and evolution.
-
- - Evolution is becoming free from the force of desire or aversion. Once evolution fully happens, existence in form of that unit of Life reaches the pinnacle of its state of being. Evolution is also called awakening, enlightenment or liberation. It is the highest, eternally balanced and blissful state of consciousness to be in. Full evolution is Budhahood.
-
-- When a Life is fully evolved it finds permanence of balance and harmony both within and with the world. It exhibits joy, heightened awareness
- and rightful conduct, action, work and behavior in eternal continuity.
-
-- After evolution, there is happiness, peace, satisfaction and bliss in continuity. A fully evolved Life exhibits patience, courage, generosity, kindness, grace and compassion in continuity. Its perspective is permanently established in truthfulness-justice-dharma. 
-
-## Why is it important to know who am I?
-Unless you know for sure _who you are_, how do you know what _you_ really want, how can _you_ be really satisfied, happy, in peace and bliss? Humanity suffers today despite all the material and scientific development because it tried to fulfill human desire and solve human problems without knowing what a human is. How can you solve a problem for someone without knowing your subject itself?
-
-So, without knowing yourself, you can not arrive at peace and resolution within and with the world around.
-
-In [Madhyasth Darshan](http://www.madyasth-darshan.info), Shri A Nagraj calls Life as a conscious atom and he explains about Life in great objective detail. Conscious atom, Life or I, is a mere choice of words. I suggest we pay attention to the object being meant by the word. That object is the phenomenon of which you, me and every other animal or conscious being out there in existence are instances or units of. A unit of that phenomenon is being called Life or conscious atom in Lifemaker literature.
