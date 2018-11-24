@@ -12,6 +12,21 @@ weight: -270
 * Ensuring food, health, housing, clothing, education, purposeful travel, work opportunity and socio-economic equality for all families.
 * Healthy soil, air, water, forests & natural ecosystem for sustainability of humanity and all Life on Earth. 
 
+## What's happening 2018?
+- Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
+- Starting food and household items based cottage industry 
+- Spreading awareness about Lifemaker society through products, shops, meetups and personal interactions.
+- Film education club will start in December in villages of Dharamsala, HP. Thanks to crowdfunding support by friends.
+- Discussions and documentation of 
+  - Aims, objectives and rules of the society
+  - Philosophy and literature
+  - Working model with all five dimensions of education, health, production, exchange and justice 
+  - Universal values 
+- Planning camps for Life Education in Himalayas from March 29th onwards
+- Content on internet, youtube and radio is on the way
+- Looking for land to lease for camps, workshops & residencies 
+- Registering a charitable society 
+
 ## The five pronged working model (how to be)
 
 > Since family is the fundamental unit of co-existence, of societal organisation and of propogation of human seed, and the first and primary space for education and wellbeing of everyone, our approach is family based.
@@ -44,20 +59,8 @@ You can reach us out via the [Lifeline](/lifeline)
 
 {{< youtube d_nsFjSuMUU >}}
 
-## What's happening?
-- Discussions and documentation of 
-  - Universal values 
-  - Working model with all five dimensions of education, health, production, exchange and justice 
-  - Philosophy and literature
-- Production & exchange: Doing first experiments with food based cottage industry in Dharamsala, HP. 
-- Education: Film education club will start in December in villages of Dharamsala, HP.
-- Planning camps from March onwards
-- Website work
-- Content on internet, youtube and radio is on the way
-- Looking for land to lease for camps, workshops & residencies 
-- Registering a charitable trust
-
 ## We are thankful 
   - Thanks to every human of past and present, who has contributed in their unique ways
   - Thanks to all the religions, messengers, philosophers, teachers, scientists, social reformers, parents and all loving beings, for their contribution towards human evolution and upliftment. We wish to see their work to completion. We want to see Humanity reach its full potential. 
-  - Special thanks to [Madhyastha Darshan](http://madhyasth-darshan.info/) for the philosophical background and blueprint evolution
+  - Thanks to [Shri A Nagraj & Madhyastha Darshan](http://madhyasth-darshan.info/) for the educational work done by them in this direction.
+  - Thanks to the Universal Teacher.

@@ -14,7 +14,7 @@ Here is our calendar for the summer of 2018
 - June 1st - 12th - Dharamsala, Himachal Pradesh, India
 - June 31st - Dharamsala Family gathering and pilot kickstart
 - August - September - Italy and Europe visit and sharing
-- October - December - Dharmasala meetup, and workshops (dates to be declared soon)
+- December 25th - General meeting in Dharamsala to present the project to general audience from the neighboring villages/town and welcome members to join and start collaboration
 
 If you curious and wish to explore more with us, please visit us or invite us to your place.
 
