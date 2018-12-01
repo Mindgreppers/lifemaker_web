@@ -6,11 +6,12 @@ weight: -270
 
 
 ## The vision and aims of Lifemaker 
-* Undivided humane society in awakened co-existence fostering real happiness, contentment, peace and bliss in every family, across all future generations.
-* A universal values based System & Order that fosters self realisation & existential knowledge, mental clarity & resolution, material equality & abundance, mutual trust & confidence and justful co-existence in every family and the undivided society, on a continuous basis.
-* Human families living humanly in co-existence, with wisdom, love, responsibility, freedom, respect, equality, balance, cooperation and other such universal values, for the good of family, society and entire existence as co-existence of which every Life and every atom is an inseparable part.
-* Ensuring food, health, housing, clothing, education, purposeful travel, work opportunity and socio-economic equality for all families.
-* Healthy soil, air, water, forests & natural ecosystem for sustainability of humanity and all Life on Earth. 
+* To unite as humankind to understand & live with absolute, universal and permanent resolution that truly satisfies all human needs, aspirations & questions, helps realise full human potential, establishes peace, equality and universal love globally, and gives to every human coming to Earth an environment and equal opportunity to live a comfortable, free, beautiful, enriching and meaningful lifetime and to leave behind a better co-creation than what it was born into.
+* To establish and maintain family based tradition of life education, for global human society to share and live by a common, holistic perspective of Life, Existence & the way to live as humans.
+* To establish and upkeep a universal values based system & order covering education & research, health & relationships, ecological production & services, exchange & cooperation and justice & self governance, aimed for providing complete resolution for all human needs (material & conscious) at family, village, region, state, national and international level for present families & society and all future generations to come.
+* To bring and sustain grassroots and family based reforms to live sustainably & humanely, in balance and symbiosis with nature & all life on Earth, and to protect & make good use of natural resources, environment, air, water & soil.
+
+The working draft of the full list of aims and objectives can be found [here](/https://docs.google.com/document/d/1Tt9Tcn0pMVg1Q-GfvFX9ll8xko-5SuCoumR2UJG-LAw)
 
 ## What's happening 2018?
 - Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
