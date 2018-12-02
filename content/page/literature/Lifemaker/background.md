@@ -12,5 +12,5 @@ We are yet to realise that **we are all found together; same and similar; on thi
 
 > All this time Humanity has been awakening. Now is the time for it to awaken, and arrive at the final frontier of Human evolution.
 
-Lifemaker is the Enlightened Human Family, integrated by a holistic and same understanding of Life, and Value based Living. We are together to protect and nurture Humanity and Earth. We are envisioning how can Humanity thrive together in abundance, along with Nature; as an unfading tradition independent of time.
+Lifemaker is the Enlightened Human Family, integrated by a holistic and same understanding of Life, and Value based Living. We are together to protect and nurture Humanity and Earth. We are envisioning how can Humanity thrive together in love, bliss, peace, satisfaction & abundance as an unfading tradition independent of time. We are working for creating a world order where every human lives freely, meaningfully, happily & satisfied and leaves a better world behind than what it was born into.
 
