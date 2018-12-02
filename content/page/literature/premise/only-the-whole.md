@@ -10,23 +10,29 @@ Just like 1 can never comprehend 2, the mind alone can not comprehend the nature
 
 > There is something deeper than the mind - it is that part of the Self which is _'experiencing'_ everything - the body, the world, the mind and even itself. This is the part which is experiencing the deep sleep and as well the dreams and awake experience. This is the part from which the mind emerges. This part is the mediating activity between rest of co-existence and the mind. It is the screen upon which all perception and mental activity takes place. It is the seat of consciousness. We can call it the soul or the heart or the center of Self. It is the real experiencer, the real expressor. 
 
-### The heart rules. Mind is the servant and often, _the acting master_ and that is troublesome.
+### The heart is the Master. Mind is the servant
 
 If the Self is like an atom, then the soul is the nucleus and the mind is the clouds of electron around the soul. More details on this in the essay [Who am I?](/who-am-i).  
 
-> The trouble is when the heart allows the mind to be the _acting master_ and stays too inert, just watching, often suffering and causing suffering. The solution is _letting the heart be the master and mind, the loyal and skillful servant_.
+While the heart is more causal to the mind, they can not do anything without each other. They are a couplet bound together for completing each other as a wholesome expression of an individual Life.
 
-### The mind is a beautiful tool!
+The trouble is when the heart allows the mind to be the _acting master_ and stays too inert, just watching, often suffering and causing suffering. The solution is _letting the heart be the master and mind, the loyal and skillful servant_. Also, the other way when the heart works without applying the mind, it often (though not always) finds it difficult to express and act for optimal outcome and that may also create suffering.
 
-> Beneath the viels of the activity of the mind lies a silent space where true knowledge is to be found.
+### Dive into the well of the heart with the eye of the mind 
+
+> Beneath the viels of the activity of the mind lies a silent space where true knowledge and absolute peace & satisfaction is to be found.
 
 When with the eye of mind one dives deep into the depth of silence and explores the infinity of Existence, the soul starts to shine. When the soul is shining the mind is free from rigidity.
 
 ### Knowledge which is only mental is mere information and not knowledge. 
-Soul is the mediator between Existence and individual Life. Mind acts only as per soul's experience and expression. Real knowledge is that which is realised by the soul. For example the whole society speaks of compassion and love but when it comes to practicality (living by it) it is not able to demonstrate compassion or love with universal consistency because the hearts of people have not yet fully realised love and the mind has not fully grasped it. Till the soul is inexperienced the mind goes crazy believing or chasing this or that, never fulfilled, never clear, never sure & resolved. It can not take a stand. Till evolved, a human lives as a personality, a set of ideas about oneself, and not its real Self. 
+Soul is the mediator between Existence and individual Life. Mind acts only as per soul's experience and expression. Real knowledge is that which is realised by the soul. 
+
+For example, till one has not experienced love from the heart one does not _know_ what love is. The whole society speaks of compassion and love but when it comes to practicality (living by it) it is not able to demonstrate compassion or love with universal consistency because the hearts of people have not yet fully realised love and hence the mind has only a creative imagination of love at best. Till the soul is inexperienced the mind goes crazy believing, imagining or chasing this or that, never fulfilled, never clear, never sure & resolved. It can not take a stand. Till one's heart has experienced knowledge of Existence, a human lives as multiple personalities with a set of ideas about oneself, and not as its real Self. 
 
 ### Difference between unevolved and evolved Life
-Most people in today's time on Earth live by using less than half of their mind's functions (and their soul is inert). Imagine a big round ball with four layers of clouds revolving around it. The ball is the soul and the four layers the mind. The farther you go away from the ball lesser is the significance of that layer. While all layers including the ball learn, the learning is of greater and greater importance when by the inner layers, than the outer layers. The ball is so big in comparison that it has a biggest effect over all the layers, like the sun has on all the planets a bigger effect than the planets have on the sun. Now imagine that only the outer two layers and half of the next layer is functioning while the rest of the setup (deeper and more powerful part of the unit) is almost or completely kept dormant. How effective would the unit be functioning when its most powerful parts are left unused? How cohesive and consistent will the vibration of the outer two layers by themselves? It can not be. And that is why most people suffer from split personality disorder and rarely do we find a gem who carries on true individuality everywhere. So why live life governed by the dictats of few outer planets when you are the whole solar system itself? 
+> Most people on Earth so far have lived by using less than half of their mind (and their soul is inert). 
+
+Imagine a big round ball with four layers of clouds revolving around it. The ball is the soul and the four layers the mind. The farther you go away from the ball lesser is the significance of that layer in terms of deep knowledge. While all layers including the ball learn, the learning is of greater and greater importance when by the inner layers, than the outer layers. The ball is so big in comparison that it has a biggest effect over all the layers, like the sun has on all the planets a bigger effect than the planets have on the sun. Now imagine that only the outer two layers and half of the next layer is functioning while the rest of the setup (deeper and more powerful part of the unit) is almost or completely kept dormant. How effective would the unit be functioning when its most powerful parts are left unused? How cohesive and consistent will the vibration of the outer two layers by themselves? It can not be. And that is why most people suffer from split personality disorder and rarely do we find a gem who carries on true individuality everywhere. So why live life governed by the dictats of few outer planets when you are the whole solar system itself? 
 
 > An unevolved Life lives life of much lesser power than its full potential.
 
