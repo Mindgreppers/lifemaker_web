@@ -13,6 +13,8 @@ weight: -270
 
 The working draft of the full list of aims and objectives can be found [here](/https://docs.google.com/document/d/1Tt9Tcn0pMVg1Q-GfvFX9ll8xko-5SuCoumR2UJG-LAw)
 
+The charter of values can be found [here](/values)
+
 ## What's happening 2018?
 - Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
 - Starting food and household items based cottage industry 

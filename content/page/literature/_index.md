@@ -17,4 +17,11 @@ At Lifemaker our pursuit is universal knowledge for all humanity - an understand
 
 These essays will explore different aspects of Life, Existence and living. It will give insights into why and how to organise as Undivided Human Society living in an order of perfection, maintaining an environment of unity, love, trust, balance and wisdom - on Earth, and beyond. 
 
+These essays have been written by Ayush Ghai, the director of the Lifemaker movement as of 2018.
+
 May you enjoy the reading.
+
+Be blessed.
+
+~
+Ayush
