@@ -13,6 +13,8 @@ draft: false
 
 ##### I experience and express, always in the here and now.
 
+![image](/images/consciousness.jpeg)
+
 _As Life_, as an individual unit of Existence, I am aware and consciously experiencing the BIG ME (Existence itself). I am present here in the human form as a unique expression of the REAL ME. 
 
 > The "I" I sense, feel and live as is a Life. Life is what senses, feels and lives as the I. _Life is the phenomenon called I_. 
