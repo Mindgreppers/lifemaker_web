@@ -6,6 +6,7 @@ draft: false
 
 # Existence is all that is.
 ## All that is co-existing together is Existence.
+![image Co-existence](/images/space-galaxies.png)
 ### All is but one and only.
 
 _Existence is inseparable, indivisible, absolute. Truth, knowledge, reality, actuality are different words meaning the same as Existence - all that is._
@@ -26,7 +27,9 @@ _Existence is all there is to know. Existence is the total object of knowing. Ex
 
 > **All of Existence is energy only. Energy is of two kinds - in equilibrium and seeking equilibrium.** 
 
-When the constitution of Existence is looked upon, all its parts are seen to co-exist in an _inseparable way_ because Existence can't be divided. The main two components of Existence as co-existence are [Void](/literature/void) and [manifest energy](/literature/manifest-energy). 
+When the constitution of Existence is looked upon, all its parts are seen to co-exist in an _inseparable way_ because Existence can't be divided. The main two components of Existence as co-existence are [Space](/literature/void) and [manifest energy](/literature/manifest-energy). 
+
+![image Space and Manifest Energy](/images/Cosmic-Universe.jpg)
 
 ### Space: The infinite energy in equilibrium
 
@@ -55,7 +58,8 @@ Matter is manifested energy condensed together. All matter in nature exists in t
 
 > Existence itself is co-existence. When seen and analysed as constituent parts Existence appears as co-existence. In reality, all is one and only. That one and only is existence itself.
 
-The infinite field of Void is an inseparable amalgamation of many kinds of fields. Some fields are purely physical. Some allow active consciousness. Nature is disturbance in these fields. The disturbance can shift from one field to another thus taking another manifestation. For example, light energy can convert to electrochemical energy or heat. Manifest energy has infinite manifestations starting from atoms and subatomic particles of different kinds. All of these manifestations are co-dependent on each other. Every atom has an effect howsoever small, on every other atom in Existence and is affected by all of the rest of co-existence in turn. Same for every human. Every _thing_ depends on everything else in co-existence. 
+
+The infinite field of Void or Space is an inseparable amalgamation of many kinds of fields. Some fields are purely physical. Some allow active consciousness. Nature is disturbance in these fields. The disturbance can shift from one field to another thus taking another manifestation. For example, light energy can convert to electrochemical energy or heat. Manifest energy has infinite manifestations starting from atoms and subatomic particles of different kinds. All of these manifestations are co-dependent on each other. Every atom has an effect howsoever small, on every other atom in Existence and is affected by all of the rest of co-existence in turn. Same for every human. Every _thing_ depends on everything else in co-existence. 
 
 The moment there is an atom in Void, there is co-existence. The moment Existence is seen as its parts the parts are seen to be co-dependent, complimentary and co-existing. All the fields co-exist, atoms co-exist, you co-exist, I co-exist. Speaking of Life, every Life co-exists with body. Body is co-existence of multiple layers ranging from gross physical to subtle energetic, lower mental, upper mental and causal bodies. Every two humans are co-existing together. There is co-existence between the seer and the seen too. Existence is energy is all-that-is. But when seen as constituent parts all of Existence is co-existence. Nature in Void is co-existence. Nature within itself is co-existence. Co-existence is the infinite and eternal play between fields of various kinds.
 
@@ -69,7 +73,7 @@ So then why does Life feel or act separate from the rest when in reality Life IS
 
 _Meditation is the world of pure Existence. Contemplation is the doorway to meditation. Attention is the key._
 
-> **In the Void, with rest of the co-existence, I am.**
+> **In the Universal Consciousness, with rest of the co-existence, I am.**
 
 With your attention on each word of this statement for long enough see whether or not it makes you feel true connectedness with everything else. See if it makes you feel infinite just like the Void. See how it takes you to transcendence. See how it brings pure joy inside of you! :)
 
