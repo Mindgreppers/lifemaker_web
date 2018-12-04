@@ -15,6 +15,8 @@ The working draft of the full list of aims and objectives can be found [here](/h
 
 The charter of values can be found [here](/values)
 
+![image This is impossible. {Only if you believe it is}](/images/alice/impossible.jpg)
+
 ## What's happening 2018?
 - Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
 - Starting food and household items based cottage industry 
