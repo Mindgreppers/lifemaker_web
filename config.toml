@@ -88,6 +88,12 @@ weight = -10
 identifier = "values"
 url = "/values"
 
+[[menu.main]]
+name = "Aims"
+weight = -20
+identifier = "aims"
+url = "https://docs.google.com/document/d/1Tt9Tcn0pMVg1Q-GfvFX9ll8xko-5SuCoumR2UJG-LAw"
+
 [blackfriday]
 hrefTargetBlank = true
 
