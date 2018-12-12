@@ -1,5 +1,5 @@
 ---
-title: "An assesment of humanity from past to present. The good, the bad and the ugly"
+title: "Humanity - a reality check from past to present. The good, the bad and the ugly"
 date: 2018-12-12T18:34:52+05:30
 draft: false 
 ---
