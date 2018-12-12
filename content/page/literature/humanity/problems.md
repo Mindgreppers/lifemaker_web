@@ -26,6 +26,7 @@ draft: false
 * Joy of hard work, fitness & strength of physical bodies and healthy eating
 * Joy of simple living
 * Joy of healthy air, water and earth
+* The scope of good always existed
 
 > ALL THAT GOOD IS MOSTLY GONE NOW OR GOING!
 
@@ -51,7 +52,7 @@ draft: false
 * More dependence on currency for survival than real nature, human knowledge, social support and material wealth
 * Anti social existence: Humans are said to be social but world is divided in countries with imagined borders. Family, communities and neighborhood are also breaking. Everyone is individualistically left to be on their own for survival and without appropriate emotional comfort and nurturing relationships.
 * Lies, deciet, lack of trust and confidence in each other at every level
-* Tension and stress
+* Tension and stress: Every family too involved in act of "doing" for a living, while most have forgotten to simply "be" - to be "human"
 * Poor quality of food
 
 ## Mixed good and bad
@@ -59,7 +60,15 @@ draft: false
 * More power to humanity but being used by power instead of using power wisely
 
 ## The good of 21st century
-* Ease of distant communication and greater access to information and stimulus
+* Ease of distant communication, travel and greater access to information and stimulus
 * Greater scientific and technical knowhow and capability
+* The scope of good, and permanent resolution for humanity still exists and is even a greater possibility thanks to distant travel, communication and technology
 
-> Is there any real joy left in today's world, for most of us, in most of the moments, in most of the places, countries, communities or families?
+> Is there any real and unadulterated joy left in today's world, for a common human being, in most of the moments, across most of the places, countries, communities or families?
+
+# Conclusion
+* Humanity is still far away its full potential
+* Some get to enjoy physical comforts and sense pleasures, but ALL are in some misery or other.
+* It is facing real chance of mass extinction in 21st century, from war, economic collapse, climate change.
+* Time to transition into full human consciousness and capability, as a species and undivided society, is NOW!
+
