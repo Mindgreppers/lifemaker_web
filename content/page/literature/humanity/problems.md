@@ -29,7 +29,7 @@ draft: false
 
 > ALL THAT GOOD IS MOSTLY GONE NOW OR GOING!
 
-# Present: In 20th and 21st century
+# Present: In 21st century
 
 ## Really bad and dangerous at mass scale
 ### Problems faced with nature:
