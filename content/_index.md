@@ -4,7 +4,6 @@ menu: main
 weight: -270
 ---
 
-
 ## The vision and aims of Lifemaker 
 * To unite as humankind to understand & live with absolute, universal and permanent resolution that truly satisfies all human needs, aspirations & questions, helps realise full human potential, establishes peace, equality and universal love globally, and gives to every human coming to Earth an environment and equal opportunity to live a comfortable, free, beautiful, enriching and meaningful lifetime and to leave behind a better co-creation than what it was born into.
 * To establish and maintain family based tradition of life education, for global human society to share and live by a common, holistic perspective of Life, Existence & the way to live as humans.
@@ -17,21 +16,24 @@ The charter of values can be found [here](/values)
 
 ![image This is impossible. {Only if you believe it is}](/images/alice/impossible.jpg)
 
+## Daily podcast, literature & content
+- Daily radio show in Hindi by Ayush in Himachal Pradesh, India through Radio Gunjan fm 91.2 fm and also available online at [few podcast apps](https://anchor.fm/ayush-ghai).
+- Essays written can be found [here](/page/literature)
+
 ## What's happening 2018?
-- Daily radio show by Ayush in Himachal Pradesh, India through Radio Gunjan fm 91.2 fm and also available online at [few podcast apps](https://anchor.fm/ayush-ghai)
 - Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
 - Have kickstarted food, clothing and household items based cottage industry 
 - Spreading awareness about Lifemaker society through products, shops, meetups and personal interactions.
-- Film education club will start in December in villages of Dharamsala, HP. Thanks to crowdfunding support by friends.
-- Discussions and documentation of 
+- Film education club started in December in villages of Dharamsala, HP. Thanks to crowdfunding support by friends.
+- Starting Life Education program for young children in village
+- Meeting likeminded people active in similar to same direction. Engaging in discussions and documentation of 
   - Aims, objectives and rules of the society
   - Philosophy and literature
   - Working model with all five dimensions of education, health, production, exchange and justice 
   - Universal values 
-- Planning camps for Life Education in Himalayas from March 29th onwards
+- Camps from April 2019 onwards
 - Content on internet, youtube and radio is on the way
 - Looking for land to lease for camps, workshops & residencies 
-- Registering a charitable society 
 
 ## The five pronged working model (how to be)
 
@@ -51,9 +53,9 @@ The working model covers these five points for self-governed and self-sustainabl
 A group of people living together with strong bond of love and mutual confidence, feel assured of care, protection & nurture, expect happiness, peace, contentment & bliss with each other, share common vision, projects and intention for lifetime (like raising children) and are resolved and committed to make it happen.
 
 ### The existential purpose of every Life and especially human Life is 
-* **To study, understand and remember the nature of Self** - What am I? 
-* **To become a master & knower of Existence** - To live co-existentially with love, truthfulness, justice and perfection in work, behavior & actions 
-* **Happiness, contentment, peace and bliss in Co-existence** (self, family, relationships, work, society, other life forms)
+* **Happiness, contentment, peace and bliss in continuity** (self, family, relationships, work, society, other life forms)
+
+For this every human and human family needs to **To understand the nature of Self, Existence and Values of Life** - What am I as human? How can we live co-existentially with values springing from love and perfection in work, behavior & actions 
 
 *We may have different viewpoints on nature of Self and reality, different skin color, occupations and opinions, but as humans we are all the same. Through honest objective and subjective inquiry humanity as society and each human is bound to understand and realise Truth in the same way, because Existence is absolute and universal. Our sameness as humans, the onlyness of Truth (Existence in which we co-exist), honest self inquiry for Truth, and agreement on the way to live, is the (only) unifying ground, which will provide Life the absolute and permanent resolution it needs and seeks.* 
 
