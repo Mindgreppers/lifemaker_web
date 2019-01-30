@@ -18,9 +18,9 @@ The charter of values can be found [here](/values)
 ![image This is impossible. {Only if you believe it is}](/images/alice/impossible.jpg)
 
 ## What's happening 2018?
-- Daily podcast by Ayush on Himachal Raadio Gunjan fm 91.2 fm and also online at [few podcast apps](https://anchor.fm/ayush-ghai)
+- Daily radio show by Ayush in Himachal Pradesh, India through Radio Gunjan fm 91.2 fm and also available online at [few podcast apps](https://anchor.fm/ayush-ghai)
 - Pilot in Village Saalig & in Dharamsala town, Himachal Pradesh under cooperative society model. 
-- Starting food and household items based cottage industry 
+- Have kickstarted food, clothing and household items based cottage industry 
 - Spreading awareness about Lifemaker society through products, shops, meetups and personal interactions.
 - Film education club will start in December in villages of Dharamsala, HP. Thanks to crowdfunding support by friends.
 - Discussions and documentation of 
