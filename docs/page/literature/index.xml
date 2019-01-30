@@ -1,0 +1,23 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes" ?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Literature on Lifemaker</title>
+    <link>http://www.lifemaker.us/page/literature/</link>
+    <description>Recent content in Literature on Lifemaker</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <lastBuildDate>Tue, 23 Oct 2018 16:51:44 +0530</lastBuildDate>
+    
+	<atom:link href="http://www.lifemaker.us/page/literature/index.xml" rel="self" type="application/rss+xml" />
+    
+    
+    <item>
+      <title>Who Am I</title>
+      <link>http://www.lifemaker.us/who-am-i/</link>
+      <pubDate>Mon, 29 Oct 2018 14:20:42 +0530</pubDate>
+      
+      <guid>http://www.lifemaker.us/who-am-i/</guid>
+      <description>I am undivided being. I am eternal, infinite, omnipotent. I am inseparable, indivisible &amp;amp; all-that-is. I am Existence. I am eternal Existence experiencing itself as Life. I experience and express, always in the here and now. As Life, as an individual unit of Existence, I am aware and consciously experiencing the BIG ME (Existence itself). I am present here in the human form as a unique expression of the REAL ME.</description>
+    </item>
+    
+  </channel>
+</rss>
