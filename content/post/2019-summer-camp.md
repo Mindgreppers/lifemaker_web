@@ -7,7 +7,7 @@ menu: main
 # LIFEMAKER CAMPS
 ## Retreats for life education, togetherness and celebration.
 ### 30th March to 20th June, 2019
-
+### [Main website for schedule and application](http://camp.lifemaker.us)
 #### Host: Your human family in village Saalig, Dharamsala, Himachal Pradesh, India. 
 [Lifemaker's pilot village for awakened self governance.]
 
