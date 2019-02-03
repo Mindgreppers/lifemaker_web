@@ -7,7 +7,11 @@ draft: false
 
 _We engage with curious people, via our local or remote [family incubation program](/incubation). You can reach out to us or apply anytime via the [lifeline](/lifeline)_
 
-Here is our calendar for the summer of 2018
+**Calendar for 2019**
+
+- [Summer camps](/post/2019-summer-camp/) between April and June 2019. Schedule and main website can be found [here](http://camp.lifemaker.us)
+
+**Calendar for 2018**
 
 - 21st March - 28th March, Bijnor, Uttar Pradesh, India
 - May - Informal workshops and meetings with local youth and couples, from Dharamsala area.

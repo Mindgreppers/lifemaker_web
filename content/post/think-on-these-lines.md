@@ -18,7 +18,6 @@ Are we (as my family and society) living in a beautiful and simple present? Are 
 
 > What is the right way to be and live? Does real and deep goodness in life experience, come from the body or the mind? Is it felt alone, or in context of co-existence only? 
 
-
 #### The essence of Human Life is wisdom and happiness.
 
 Yet, do you find yourself or most of humanity, as resolved and happy? Do you find our current society, system and environment simple, fair and conducive for life? Have you ever felt the need that you need to arrive at the total/objective understanding of reality yourself, and living that way, instead of blindly following someone else or the general social prescription? Do you ever wonder that who else, if not us human beings, are responsible for all existing problems on Earth? *Have you ever wondered what is the solution?* 
