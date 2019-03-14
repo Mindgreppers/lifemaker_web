@@ -23,7 +23,13 @@ First cum first serve. Max 8 seats per camp. Only sincere students who demand kn
 
 ---
 
-### Warning
+### Applications and queries
+
+You can apply through this link [here](https://camp.lifemaker.us/apply-for-the-camp/). You can send your queries to lifemakerus @ gmail.com
+
+---
+
+### We want not curious tourists, but inquisitive travellers 
 
 > This is not a space for intellectual masturbation and ego games. It is a space for sincere self discovery. We will be on a collective cosmic journey to find the truth that is *between, within and all around us*. We want Satsangha - harmonious collaboration for collective inquiry of Truth. We want travellers in this program, not tourists. If any insincerity is found, you will be asked to go and camp somewhere else like Bhagsu or Mcleod where there is plenty of tourists. 
 
