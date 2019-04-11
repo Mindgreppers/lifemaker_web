@@ -66,7 +66,10 @@ _Himalayan wilderness, serene and simple village living, futuristic, resolved & 
 
 ## Activities and schedule
 {{< figure src="/images/ayush-wondering.jpg" title="Ayush is a student of Existence, a thinker, meditator" caption="He wants you to think with him" >}}
-You are invited to fill the womb of your receptivity with experience and understanding with help from experienced guides like Ayush, and discussions and sharing with your peer group. You will dive into the depths of your innermost self and feel the connection with rest of existence as co-existence. You will ask questions and recieve answers to think upon and discuss. You will feel lightness, love and joy. We will stay for the whole program with continuous meditation as our state of being throughout the day. We will discuss, study and contemplate upon Life, Existence and way to live happily. We will participate in the village living symbiotically.
+
+> The day starts around 6 AM daily and we go with the flow from there.
+
+You are invited to fill the womb of your receptivity with experience and understanding with help from Ayush, and discussions and sharing with your peer group. You will dive into the depths of your innermost self and feel the connection with rest of existence as co-existence. You will ask questions and recieve answers to think upon and discuss. You will feel lightness, love and joy. We will stay for the whole program with continuous meditation as our state of being throughout the day. We will discuss, study and contemplate upon Life, Existence and way to live happily. We will participate in the village living symbiotically.
 
 > Once in a while we will go out for morning walks, day treks or camping in some cave or old forest house in absolute wilderness to experience pure nothingness and everythingness in nature.
 
@@ -75,27 +78,7 @@ You are invited to fill the womb of your receptivity with experience and underst
 
 {{< figure src="/images/camp-2019/deep-meditation.jpg" title="The state being itself is meditation" caption="Your meditation is the sum total of your experience and understanding, as evident in your state of being. Image courtesy: Mindworks.org" >}}
 
-* **5:00 AM** Morning chai and rising up
-* **5:30 - 7 AM** - Easy Yoga, energy movements, pranayaam and sitting practice or walk in forests. Warming up for whole day meditation of every-thingness in no-thingness
-* **7:00 AM** Chai round 2
-* **7:30 - 9 PM** - Lecture, question-answer and discussions with Ayush
-* **9 - 9:30 AM** Breakfast in meditation
-* **10 - 11:30** Educational videos, films and discussions.
-* **11 - 12:30** **Free flow.** Peer to peer discussions, thinking, observation, meditation. *Have a dip in the mountain stream or help prepare lunch?*
-* **12:30 - 1 PM** **Sitting meditation** round 2
-* **1 PM - 1:30 PM** - **Lunch** cooked on traditional wooden stove.
-* **1:30 - 2:45 PM** - **Free flow.** Relaxation. Rest. Peer to peer exchange, discussions, QnA, knowledge sharing sessions with or without teacher. Climb a tree. Sit on a rock. Stay meditative. 
-* **2:45 - 3:45** - **Sitting concentration and meditation**
-* **4PM - 5PM** - **Daily education program for village children** by Ayush. You can also join in to help. Or just relax. Maybe help with fixing the mud house? Or pick up the Charka for spinning? Go for a chai at Surinder's shop or walk in the forests.
-* **5 - 6 PM** - **Tea and play time with and as children!** Evening tea, games, exercise, yoga, arts or tinkering with children
-* **6 - 6:30 PM** - **Free time.** Walk in the village. Stay observant, contemplative and meditative 
-* **6:30 - 8 PM** - Meditation, QnA, discussions, music with Ayush and any attending villagers by sunset. Help preparing dinner?
-* **8 - 8:30 PM** - Dinner around traditional wood stove bonfire while being meditative and joyful :)
-* **8:30 - 9:30 PM** - **Free flow** Mutual exchange, bonding activities, celebration etc. - all in meditation
-* **9:30 - 10 PM** - **Before sleep meditation**
-* **10:00 PM** - **Sleep and dream meditatively**
-
-> Ayush may or may not be available from 9:30 AM to 3:30 PM. The group is expected to stick to the prescribed schedule under guidance from the village team or existing teachers.
+> Ayush may or may not be available from 9:30 AM to 3:30 PM. But we will coordinate on the what and how for the day as per the flow. 
 
 ### The content 
 > We will explore set of proposals together, through direct experience as meditation and also understanding by the full mind.
