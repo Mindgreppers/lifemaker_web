@@ -22,15 +22,9 @@ You can apply through this link [here](https://camp.lifemaker.us/apply-for-the-c
 
 ---
 ### Dates: 4th April to mid June, 2019. \
-**Short camps**: 4th to 8th April, 12th to 16th April, 10th - 14th May, 18 - 22nd May
-
-**Fuller camps**: 20th - 29th April, 31st - 9th June 
-
-Admission is first cum first serve. Max 8 seats per camp. Only sincere students who demand knowledge of Self, Existence and holistic resolution for their human existence, are willing to cooperate with the teachers and organisers, willing to keep the decorum of the space/village are welcome to this program. 
+Updates: Since we do not have a heavy rush this season, we are keeping the camp dates flexible as per the timeline of the visiting guests and availability with us. Minimum attendees per group is 2.  
 
 > Families are most welcome. Age of participants: 8 years and above 
-
-*If you can't make it for a camp but are still very interested in meeting us, you can apply for a guest visit between or after the camp dates to informally engage with us. The morning and evening routine is same everyday. QnA and discussions will happen between us with the flow.*
 
 {{< figure src="/images/camp-2019/children3.jpg" title="Stills from Life education program for children (and their parents)" >}}
 {{< figure src="/images/camp-2019/children2.jpg" title="Children come everyday at 4PM for holistic education with play" >}}
