@@ -4,9 +4,6 @@ menu: main
 weight: -270
 ---
 
-## Join us for 5 & 10 day Life education retreats from April - June 2019 or visit as an inquisitive guest
-#### [About the program, schedule and applications](/post/2019-summer-camp/)
-
 ## The vision and aims of Lifemaker 
 * To unite as humankind to understand & live with absolute, universal and permanent resolution that truly satisfies all human needs, aspirations & questions, helps realise full human potential, establishes peace, equality and universal love globally, and gives to every human coming to Earth an environment and equal opportunity to live a comfortable, free, beautiful, enriching and meaningful lifetime and to leave behind a better co-creation than what it was born into.
 * To establish and maintain family based tradition of life education, for global human society to share and live by a common, holistic perspective of Life, Existence & the way to live as humans.
