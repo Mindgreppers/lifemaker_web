@@ -1,7 +1,6 @@
 ---
 title: "Life Education Program: 2019 Summer"
 date: 2019-01-31T15:45:44+05:30
-menu: main
 ---
 
 # A holistic and immersive educational experience for the Self, couples, friends and families
