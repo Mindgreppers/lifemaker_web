@@ -65,29 +65,49 @@ In order to align together our only refuge is to understand universal reality an
   - Working model with all five dimensions of education, health, production, exchange and justice  
 - Setting up of online discussion forum and universal education module
 
-## The five pronged working model (how to be)
 
-> Since family is the fundamental unit of co-existence, of societal organisation and of propogation of human seed, and the first and primary space for education and wellbeing of everyone, our approach is family based.
+## What is family
+Since family is the fundamental unit of of human society and the first and primary space for love, nurture, education and wellbeing, our approach is family based.
 
-The working model covers these five points for self-governed and self-sustainable families organised as grassroots based cooperatives and self help groups to co-exist in Universal orderliness across villages, neighborhoods, provinces, nations and united-humane-nation. These five dimensions broadly cover every aspect from human to nature, but can be expanded into a larger list by breaking individual dimensions. This is a proposal at this stage, and is is kept adaptable to change.
+> A family doesn't have to be necessary blood related or headed by a married couple of different sex. As long as a family lives justfully within itself, with society and nature, the form of family and parenthood can be as varied as nature. Such a family, of any composition and relational combination as mutually constituted by its consenting members will be acceptable to undivided society (world family).
 
-* **Education and research** - [Family education](/literature/family-education) and research, covering value based consciousness development (the foundation) and skills/knowledge useful for living so that every family lives in Budhdha consciousness, serves the co-existence in meaningful ways and is self reliant to produce goods and services and generate more resources than its needs for itself. To also introduce value based consciousness development education in schools, colleges, universities, internet and other such social mediums. 
+A family is a group of people living together with strong bond of love and trust, feeling assured of care, protection & nurture, expect happiness, peace, contentment & bliss with each other, share common vision, projects and intention for lifetime (like living happily together, raising children, making a home etc.) and are resolved and committed to make it happen responsibly.
+
+> The building brick of undivided human society is a family committed to living justfully. be a committed to justful (mutually fulfilling) existence between itself and with the rest of society and world.
+
+## The structure and decision making of undivided human society
+
+> All decisions shall be done with consensus from bottom up through fractal self governing setup.
+
+A family is a group of upto around 10 people, and will choose one member to represent it in the family group in which upto around 10 families will participate. The groups at village level will send one representative up to the village group level. The village groups will each send one representative to the district level, so and so forth till the world society level where in the end around 10 most wise people will boil up from grassroots to top, _all through consensus based decision making_.
+
+If ever at any level, a group is not able to arrive at consensus on any issue, the represenatative's decision shall be consensually accepted by the members. A group will only be divided in wrong, and united in right. Whenever there is something wrong, the representative will break the tie, after listening to all the members of their group. Since the representative is personally member of the group and is chosen by the group of around 10 with consensus, they will have also put trust in the wisdom of the person chosen. This way everything that the society does will have agreement of every individual and group of the society from bottom up.
+
+> Society will self govern itself based on wisdom, and power will serve wisdom.
+
+### Traditional governance structures are yet to deliver total success
+
+Traditional governance structures like kingship, religion, autocracy, communism, socialism and even democracy have failed to deliver on the promise of happiness and prosperity for the common human family, as a social order. Even democratically run countries are full of division, mismanagement, poor decision making, unpredictability and strife.
+
+Why? Because democracy also runs by power and not wisdom. Those who get most votes come to power. The design of democracy by default divides the society into factions and parties. What we need and want is Undivided Human Society. 
+
+> Another issue faced historically with all governance models is that the decisions for local people are made by few people sitting thousands of kilometers away from the local problem and needs. The solution is to provide power to local people, over local resources, in subservience to universal wisdom based responsible and consensual decisions. 
+
+## The six dimensions of the social working model (how to be)
+The working model covers six proposed dimensions for self-governed and self-sustainable families organised as grassroots based cooperatives and self help groups to co-exist in Universal orderliness across villages, neighborhoods, provinces, nations and united-humane-nation. These five dimensions broadly cover every aspect from human to nature, but can be expanded into a larger list by breaking individual dimensions. This is a proposal at this stage, and is kept adaptable to change.
+
+* **Education and research** - [Family education](/literature/family-education) and research, covering value based consciousness development (the foundation) and skills/knowledge useful for living so that every family arrives and lives at _full human_ level, serves the co-existence in meaningful ways and is self reliant to produce goods and services and generate more resources than its needs for itself. 
 * **Health** - Healthy lifestyle, natural healing practices, affordable medicine and cure in every neighborhood so that every family and village is self empowered to live healthy in body & mind. Also global research, cooperation and hospitals for providing medicine and cure beyond the local scope.
 * **Eco-production, work and services** - Self-reliant families & neighborhoods producing in abundance through organic farming, cottage industry and with least dependency on heavy machinery or factories. Universal values and local resources based production, work and services in balance and symbiosis with nature and society. 
-* **Exchange and economics** - Giving and justice based (instead of self interest & maximisation of profit based) exchange where every family sustains as a giver and reciever of abundance. Co-ownership and co-management of resources, food storage, banking, barter & exchange markets as self help groups and cooperative societies organised from village (local) to united-humane-nation (global) levels, to ensure fulfillment every family's living needs as locally as possible along with necessary global cooperation and collaboration. To work on localised finite resource based localised economy instead of infinite resource based global consumeristic economy based on interest, inflation, profit and hoarding.
-* **Justice and celebration** - Universal values based constitution, code of conduct and laws for decentralised self-governance, collaboration and consensual decision making, as undivided human society organised from village to united-humane-nation levels. To evolve and upkeep mechanisms which ensure justful, truthful and humane social environment within participating families and to strive for the same for all humanity. 
+* **Justful exchange and local circular economy** - Giving and justice based (instead of self interest & maximisation of profit based) exchange where every family sustains as a giver and reciever of abundance. Co-ownership and co-management of resources, food storage, banking, barter & exchange markets as self help groups and cooperative societies organised from village (local) to united-humane-nation (global) levels, to ensure fulfillment every family's living needs as locally as possible along with necessary global cooperation and collaboration. To work on localised finite resource based localised economy instead of infinite resource based global consumeristic economy based on profit, hoarding, interest & inflation.
+* **Justice and celebration** - By justice we mean not punishment or externally forced decision making, but mutual understanding and consensus based decisions and actions that ensure all round fulfillment of all parties involved. This culture of self discipline for justice will start from the physical family itself, and spread to the village family. From there to the World Society, to ensure justice at each level of social existence without any arguments, battles, fights or wars. To develop universal human values based manifesto, constitution, policies and laws for decentralised self-governance, collaboration and _consensual decision making_, and thereby self govern as undivided human society organised from village to united-humane-nation levels. To evolve and upkeep mechanisms which ensure justful, truthful and humane social environment within participating families and to strive for the same for all humanity. To have social celebration, festivals, fairs, events, songs, theater, arts and such to celebrate harmonious co-existence.
+* **Nurture of nature and compassion with animals** - To ensure that rest of the Nature on Earth (and even beyond) is well taken care of, is enriched and thriving with human care and affection. To be compassionate with other life forms and ensure that animals and natural balance don't suffer because of human's misguided actions.
 
 ![image](/images/infographicLifemaker.png)
 
-#### What is family?
-A group of people living together with strong bond of love and mutual confidence, feel assured of care, protection & nurture, expect happiness, peace, contentment & bliss with each other, share common vision, projects and intention for lifetime (like raising children) and are resolved and committed to make it happen.
+### Coming together with a shared, universal perspective is our only refuge
 
-### The existential purpose of every Life and especially human Life is 
-* **Happiness, contentment, peace and bliss in continuity** (self, family, relationships, work, society, other life forms)
-
-For this every human and human family needs to **To understand the nature of Self, Existence and Values of Life** - What am I as human? How can we live co-existentially with values springing from love and perfection in work, behavior & actions 
-
-*We may have different viewpoints on nature of Self and reality, different skin color, occupations and opinions, but as humans we are all the same. Through honest objective and subjective inquiry humanity as society and each human is bound to understand and realise Truth in the same way, because Existence is absolute and universal. Our sameness as humans, the onlyness of Truth (Existence in which we co-exist), honest self inquiry for Truth, and agreement on the way to live, is the (only) unifying ground, which will provide Life the absolute and permanent resolution it needs and seeks.* 
+*We may have different viewpoints on nature of Self and reality, different skin color, occupations and opinions, but as humans we are all the same. Through honest objective and subjective inquiry humanity as society and each human is bound to understand and realise Truth in the same way, because we exist in the same Truth. Our sameness as humans, the onlyness of Truth (Existence in which we co-exist), honest self inquiry for Truth, and agreement on the way to live, is the (only) unifying ground, which will provide Life the absolute and permanent resolution it needs and seeks.* 
 
 ## Call to the tribe
 
