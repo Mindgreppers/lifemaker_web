@@ -63,6 +63,7 @@ In order to align together our only refuge is to understand universal reality an
 - Meeting and collaborating as likeminded society members, active in the same direction. Engaging in discussions and documentation of 
   - Aims, objectives, universal human values, policies, constitution
   - Working model with all five dimensions of education, health, production, exchange and justice  
+- Setting up of online discussion forum and universal education module
 
 ## The five pronged working model (how to be)
 
