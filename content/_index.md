@@ -14,10 +14,9 @@ The time is ripe for collective transition of Humanity towards pinnacle of its c
 
 _Every human's deepest inspiration is to live with a feeling of harmony, happiness and fulfillment in continuity. Humankind's need is a social culture, environment and tradition that fosters the same, in a systematic and orderly way, naturally acceptable and consensually agreed upon by every human being._
 
-This is an of Human Society, by Human Society and for _Human Society and the World_ movement, not to be ever owned by any individual or organization, but only by Free, Self Governing, "Undivided" "Human" Society. Lifemaker is just a good name to describe the feeling and purpose of what this movement is about. There can be more names as well, but the object is this movement itself.
+This is an of Human Society, by Human Society and for _Human Society and the World_ movement, not to be ever owned by any individual or organization, but only by Free, Self Governing, "Undivided" "Human" Society. Lifemaker is just a good name to describe the feeling and purpose of what this movement is about. [Viridus](http://www.viridus.in), a partner team for the same cause who are introducing universal wellbeing education to universities and colleges in India, is calling the same movement as Global Wellbeing Movement. There can be more names as well, but the object is this movement itself, and is shared by all of us as the same.
 
 ## The universal human problem
-
 
 > Our society and most of its individuals and families are not living freely, fearlessly, happily, harmoniously or mutually fulfilled, at least not all the time, if not most of the time. 
 
