@@ -4,7 +4,7 @@ menu: main
 weight: -270
 ---
 
-## The time has come for human evolution to unflower to its full potential
+## The time has come for human achievement to unfold to its full potential
 
 > Undivided human society living together and with rest of Nature as One World Family, in a self sustaining traditional environment that nurtures self realization, all round wellbeing, freedom, harmony, fulfillment and happiness, in the individual and relationships. To unite and live in celebration of Existence, with the right feeling, right understanding and shared prosperity at all levels of our inter-being - individual, family, village, area, region, nation state, Undivided Human Society, the World Family (every unit of Nature included).
 
