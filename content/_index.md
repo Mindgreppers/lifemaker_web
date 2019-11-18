@@ -30,9 +30,19 @@ Unlike most of previous human approaches based on _faith before knowledge_, thes
 
 [Read more](/about-the-proposal)
 
-#### This is our opportunity to transform and contribute
+##### [IMPORTANT] Introduction to the Proposals by Prof. Ganesh Bagaria
+A series of lectures, questions and answers giving holistic perspective on the nature of life as humans and the key to harmonious living. These videos were shot during one of his workshops at IIT Kanpur.
 
-_Every human's deepest inspiration is to live with a feeling of harmony, happiness and fulfillment in continuity. Humankind's need is a social culture, environment and tradition that fosters the same, in a way naturally acceptable to every human being. These proposals are about this only._
+> You can find all the lectures with QnA in [this youtube playlist](https://www.youtube.com/watch?v=E1STJoXCXUU&list=PLKDfuUlbRCEbe1oj21ih9ECA78R_l8d3-). Find more videos on our [videos page](/videos)
+
+Every human's deepest aspiration is to live with a feeling of harmony, happiness and fulfillment in continuity. For experiencing harmony as human being, family and society, the following three is a must have in each individual
+
+* understanding and experience of Self as Human and Existence as Co-existence, 
+* justful work, behavior and right feelings in relationships 
+* shared prosperity with rest of human family and nature.
+
+Humankind's need is a social culture, environment and tradition that fosters the same, in a way naturally acceptable to every human being. These proposals are about this only.
+
 > Shall you wish to understand, join and contribute in any way, please get in touch
 
 ### The approach
@@ -68,14 +78,6 @@ This is an of Human Society, by Human Society and for _Human Society and the Wor
   - [Aims, objectives](/aims), universal human values, policies, constitution
   - [Working model](/working-model)  
 - Setting up of online discussion forum and universal education module
-
-## Call to the tribe
-
-> Every human is seeking happiness, mostly externally. Happiness can only be found when we are in sync with own true nature, and it reflects in fulfilment of our relationships with the world and with our own Self. The individuals are like small streams, which may or may not be able to make to the ocean alone. But together, our company of Truth can form a large river, which surely will reach the ocean of realised co-existential bliss; and there will be mutual wellbeing and happiness all along the way and for all our future generations to come on Earth.
-
-You can reach us out via the [Lifeline](/lifeline)
-
-{{< youtube d_nsFjSuMUU >}}
 
 ## We are thankful 
   - Thanks to every human of past and present, who has contributed in their unique ways
