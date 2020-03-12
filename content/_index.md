@@ -17,16 +17,29 @@ weight: -270
 ### Let us make such a just and equitable society
 ### An understanding and relationship based society 
 
-### With systems of holistic education and good self governance. 
+### With systems of holistic education and good self governance, 
 
 ### So that we can together realize such a world for humankind.
-### We finally have some proposals ready and about to be served.
-### You can read them here.
-### This collective movement
-### of _realization_ within and around, 
+
+## We finally have some proposals ready and about to be served.
+### You can read their current drafts on this website.
+### This collective movement of being human,
+### of _realization_ within and in the undivided human society, 
 ### is named Lifemaker.
 
 ### ~
+
+
+### Some readings
+
+* [Proposed approach](/approach)
+* [The proposals for your reflection](/proposals) 
+* [The proposed six dimensional working model cum blueprint](/working-model)
+* [Consensus and self discipline based Self Governance](/self-governance)
+* [Thoughts on family - the unit of society](/family) 
+* [About the pilot location: village Saalig and tehsil Dharamsala, H.P., India](/saalig)
+
+## The aim
 
 > The aim of Lifemaker movement is to develop the right understanding (truth) within oneself and to live by it, as individuals – on our own right, i.e. with self-discipline; and contribute to a society which ensures the wellbeing of all in continuity, i.e. a self-governing, undivided society which is just and equitable.
 
@@ -38,14 +51,6 @@ For realizing this we need naturally acceptable, shared understanding of
 * Existence as coexistence and 
 * The way to live with good governance, in a family and grassroots centric way, covering education, health, production/services, distribution, relationships and nurture of nature.
 
-### Some readings
-
-* [Proposed approach](/approach)
-* [The proposals for your reflection](/proposals) 
-* [The proposed six dimensional working model cum blueprint](/working-model)
-* [Consensus and self discipline based Self Governance](/self-governance)
-* [Thoughts on family - the unit of society](/family) 
-* [About the pilot location: village Saalig and tehsil Dharamsala, H.P., India](/saalig)
 ### This is an individual and collective endeavour
 
 Your suggestions on our aims, proposals, working model, consensus based undivided self governance or anything else, are most welcome. Your collaboration in any form is welcome.
@@ -61,7 +66,7 @@ Every human needs four essential things - understanding, relationship, health an
 If a human being doesn't have understanding, it suffers whether or not realizing it. It stays discontent in relationships, develops poor health and has an unhelpful and unsatisfactory equation with physical facility, even if very rich. Indeed today we are all suffering because of our lack of understanding as individuals and society. It is clear that while we want to educate ourselves and our children, we have so far not even understood who we are as human, what are the needs of a human and what is the fundamental purpose of education for a human. Is education about just getting literacy and skills for getting a professional job? What is education? 
 Hence as a result, today we have a society where there are many problems all around - in individual lives and as a collective.
 
-Realization of universal knowledge and resolution, is the need, purpose, opportunity and challenge of every human life. With knowledge of the self, a human becomes true to itself, i.e. it becomes free of all mental corruption, conflict, tension, fear, stress, worry etc. arising from lack of understanding based assumptions, thoughts, attachments, expectations, desires.  Knowledge, i.e. being the pure self, is the only and stable source of happiness, peace, satisfaction and joy, that lasts. Knowledge is the doorway to real, everlasting freedom and self governance. Knowhow and talent, i.e. how to live, navigate, cocreate with the laws of Nature is useful for living as humans. Hence, to ensure holistic education within and in family/society is a need and responsibility of every human. From there the resolution flows contagiously to the rest.    
+Realization of universal knowledge and resolution, is the need, purpose, opportunity and challenge of every human life. With knowledge of the self, a human becomes true to itself, i.e. it becomes free of all mental corruption, conflict, tension, fear, stress, worry etc., which arise from assumptions, thoughts, attachments, expectations and desires stemming from an improper understanding. _Knowledge, i.e. being the pure self as-I-am_, is the only and stable source of happiness, peace, satisfaction and joy, that lasts. Knowledge is the doorway to real, everlasting freedom and self governance. Knowhow and talent, i.e. how to live, navigate, cocreate with the laws of Nature is useful for living as humans. Hence, to ensure holistic education within and in family/society is a need and responsibility of every human. From there the resolution flows contagiously to the rest.    
 
 #### This is Undivided World Family
 Here we are not talking of any sect or religion. The object of Undivided human society unconditionally includes and loves every human as part of it, because only with unconditional acceptance we start to be undivided. And reality is that we are indeed undivided by nature, but only divided by our imaginary boundaries and conflicts. 
