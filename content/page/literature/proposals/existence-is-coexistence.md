@@ -14,7 +14,8 @@ draft: false
 * Manifest energy can be called Nature or Prakruti (from Hindi/Sanskrit)
 * Space and Nature have been called Father and Mother, Supreme Soul and Supreme Power, Shiva and Shakti, Omnipotence and Omnipowerful, Unmanifest and Manifest, Brahman and Prakruti, Shoony and Prakruti in different traditions
 * Space
-    * Infinite _unmanifest_ energy in eternal equilibrium
+    * Infinite _unmanifest, absolute_ energy in eternal equilibrium
+    * All pervading.
     * It was, is and will be eternally and completely inactive and unchanging (Hence also called Void or Shoony)
     * Space is the (fundamental) field of which all sub fields are constituent parts.
     * Space is the field of omnipotence because it is the Space which allows everything that happens or can happen; which is - infinite possibilities. 
@@ -25,9 +26,9 @@ draft: false
     * Space is transcendental; Every unit of Nature is based on Space which is its mediator. Without Space, Nature can not be.
     
 * Nature
-    * Infinite _manifest_ energy as eternal activity/vibration across different sub fields of Space.
+    * Infinite _manifest, relative_ energy as eternal activity/vibration across different sub fields of Space.
     * Nature has infinite conscious and non-conscious (material) units.
-    * Every unit of Nature is an activity of manifest energy in Space.
+    * Every unit of Nature is a (relative) activity of manifest energy in Space.
     * Every unit of Nature follows a certain templated constitution, which may or may not be permanent.
         * Each constitution has unique form, properties, innateness and inseparable essence (Dharma).
     * The nucleus of every unit is its mediator. Space is the mediator for the nuclei. Those units which don't have sub components or a nucleus (elementary particles like electrons, up and down quarks, neutrinos) have space as the direct mediator.

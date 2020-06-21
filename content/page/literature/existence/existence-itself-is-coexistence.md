@@ -31,13 +31,13 @@ When the constitution of Existence is looked upon, all its parts are seen to co-
 
 ![image Space and Manifest Energy](/images/Cosmic-Universe.jpg)
 
-### Space: The infinite energy in equilibrium
+### Space: The infinite, unmanifest and absolute energy in equilibrium
 
 A.k.a [Void, space, universal consciousness or omnipotence](/void). 
 
 There is an infinite and all-pervasive field of unmanifest energy in all round equilibrium and equal density everywhere. Not a “seer”, not a “doer”, not an “experiencer”, not a “creator”, not a “director”, this infinite energy in equilibrium does not, can not “do” anything. Yet as the fundamental basis of Existence, it is the 'field' in which rest of co-existence exists. It allows, empowers, connects and _mediates_ between all free energy and matter in co-existence. This field is the fundamental basis of all Existence as co-existence. 
 
-### Nature: The manifest energy seeking equilibrium
+### Nature: The infinite, manifest and relative energy seeking equilibrium
 
 Now, within the infinite energy at equilibrium (Void) there exists manifested energy "not in equilibrium" which is constantly flowing across difference in potential. Manifest energy is eternally seeking equilibrium (also stated as second law of thermodynamics in science). Hence material world or "Nature" is always changing. 
 
