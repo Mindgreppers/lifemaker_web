@@ -4,31 +4,10 @@ menu: main
 weight: -270
 ---
 
-### A society which strives for a beautiful and meaningful life for everyone
-### Where there is no fear, no problem in any relationships or environment
-### Where all of nature is prospering and so is every human home 
-### Where every human grows up seeing all around 
-## and within,
-### Resolution, discipline, responsibility, prosperity and joy.
-### Where relationships of all kinds bloom
-### whether with humans, animals, plants, forests or nature.
-### And blooms in everyone - a lasting smile.
-
-### Let us make such a just and equitable society
-### An understanding and relationship based society 
-
-### With systems of holistic education and good self governance, 
-
-### So that we can together realize such a world for humankind.
-
-## We finally have some proposals ready and about to be served.
-### You can read their current drafts on this website.
-### This collective movement of being human,
-### of _realization_ within and in the undivided human society, 
-### is named Lifemaker.
+## A happy, just and equitable society
+### Self realization, happiness, prosperity and relationships for everyone
 
 ### ~
-
 
 ### Some readings
 
